@@ -611,48 +611,48 @@ Soft, breathable knitwear forms the foundation of a young girl's wardrobe — of
 ### 👑 Premium Tier (Approx. £120–£200)
 | Brand | Price Range | Type | Best For | Similar To | Description |
 |--------|--------------|------|-----------|--------------|--------------|
-| **Bonpoint** | £150–£200 | Fine merino cardigans | Smart-casual | Ralph Lauren | Elegant French design with delicate detailing and ultra-soft feel. |
-| **Il Gufo** | £130–£180 | Cashmere jumpers | Seasonal layering | Joules | Italian-made knits with refined silhouettes and comfort focus. |
-| **Caramel London** | £140–£190 | Merino pullovers | Transitional wear | Next | Luxurious, lightweight knits with artisanal craftsmanship. |
-| **La Coqueta** | £130–£180 | Cotton-blend cardigans | Everyday wear | Ralph Lauren | Spanish design known for soft structure and timeless hues. |
-| **Stella McCartney Kids** | £130–£180 | Organic cotton sweaters | Weekend wear | Adidas | Playful details with quality organic materials. |
-| **Oeuf NYC** | £140–£190 | Hand-finished knits | Cold-weather days | Saltrock | Soft, breathable wool with minimalist hand-knit design. |
-| **Gray Label** | £120–£160 | Fine rib knits | Everyday luxury | Next | Organic cotton basics with clean Scandi aesthetic. |
-| **The Little Tailor** | £130–£160 | Cotton knit cardigans | Nursery layering | Joules | British heritage-inspired knits with button-back ease. |
-| **Bonton** | £130–£180 | Patterned jumpers | Transitional layering | Joules | Subtle colour contrasts and soft ribbing for daily comfort. |
-| **Marie-Chantal** | £140–£200 | Cashmere-blend knits | Family events | Ralph Lauren | Fine luxury pieces in pastel tones with gentle charm. |
+| Bonpoint | £150–£200 | Fine merino cardigans | Smart-casual | Ralph Lauren | Elegant French design with delicate detailing and ultra-soft feel. |
+| Il Gufo | £130–£180 | Cashmere jumpers | Seasonal layering | Joules | Italian-made knits with refined silhouettes and comfort focus. |
+| Caramel London | £140–£190 | Merino pullovers | Transitional wear | Next | Luxurious, lightweight knits with artisanal craftsmanship. |
+| La Coqueta | £130–£180 | Cotton-blend cardigans | Everyday wear | Ralph Lauren | Spanish design known for soft structure and timeless hues. |
+| Stella McCartney Kids | £130–£180 | Organic cotton sweaters | Weekend wear | Adidas | Playful details with quality organic materials. |
+| Oeuf NYC | £140–£190 | Hand-finished knits | Cold-weather days | Saltrock | Soft, breathable wool with minimalist hand-knit design. |
+| Gray Label | £120–£160 | Fine rib knits | Everyday luxury | Next | Organic cotton basics with clean Scandi aesthetic. |
+| The Little Tailor | £130–£160 | Cotton knit cardigans | Nursery layering | Joules | British heritage-inspired knits with button-back ease. |
+| Bonton | £130–£180 | Patterned jumpers | Transitional layering | Joules | Subtle colour contrasts and soft ribbing for daily comfort. |
+| Marie-Chantal | £140–£200 | Cashmere-blend knits | Family events | Ralph Lauren | Fine luxury pieces in pastel tones with gentle charm. |
 
 ---
 
 ### 💎 Mid-Range Tier (Approx. £70–£120)
 | Brand | Price Range | Type | Best For | Similar To | Description |
 |--------|--------------|------|-----------|--------------|--------------|
-| **Mabli** | £80–£110 | Wool cotton knits | Autumn layering | Joules | Welsh heritage brand known for soft, patterned everyday knits. |
-| **Petit Bateau** | £75–£100 | Cotton sweaters | Transitional wear | Next | French classics in durable, soft fibres for repeat wear. |
-| **Frugi** | £70–£90 | Organic cotton jumpers | Playtime layering | Joules | Bright, fun designs that stay comfortable all day. |
-| **Morris & Co x Next** | £85–£100 | Patterned knitwear | Everyday style | Next | Heritage-inspired prints in easy-care cotton. |
-| **Lacoste Kids** | £90–£120 | Fine ribbed sweaters | Smart-casual | Ralph Lauren | Polished texture and comfortable tailoring for daily wear. |
-| **JoJo Maman Bébé** | £75–£90 | Cotton-blend cardigans | Nursery comfort | Joules | Soft touch, machine-washable cardigans in muted tones. |
-| **Scotch & Soda Kids** | £100–£120 | Light jumpers | Weekend wear | Saltrock | Textured designs with a relaxed, creative edge. |
-| **LIEWOOD** | £85–£110 | Organic rib knits | Everyday basics | Next | Scandinavian minimalism with gentle structure. |
-| **Tocoto Vintage** | £80–£110 | Cotton pullovers | Transitional wear | Joules | Delicate details with vintage influence and soft shades. |
-| **Pepa & Co** | £90–£115 | Fine-knit jumpers | Occasions | Ralph Lauren | Refined knits with classic British design heritage. |
+| Mabli | £80–£110 | Wool cotton knits | Autumn layering | Joules | Welsh heritage brand known for soft, patterned everyday knits. |
+| Petit Bateau | £75–£100 | Cotton sweaters | Transitional wear | Next | French classics in durable, soft fibres for repeat wear. |
+| Frugi | £70–£90 | Organic cotton jumpers | Playtime layering | Joules | Bright, fun designs that stay comfortable all day. |
+| Morris & Co x Next | £85–£100 | Patterned knitwear | Everyday style | Next | Heritage-inspired prints in easy-care cotton. |
+| Lacoste Kids | £90–£120 | Fine ribbed sweaters | Smart-casual | Ralph Lauren | Polished texture and comfortable tailoring for daily wear. |
+| JoJo Maman Bébé | £75–£90 | Cotton-blend cardigans | Nursery comfort | Joules | Soft touch, machine-washable cardigans in muted tones. |
+| Scotch & Soda Kids | £100–£120 | Light jumpers | Weekend wear | Saltrock | Textured designs with a relaxed, creative edge. |
+| LIEWOOD | £85–£110 | Organic rib knits | Everyday basics | Next | Scandinavian minimalism with gentle structure. |
+| Tocoto Vintage | £80–£110 | Cotton pullovers | Transitional wear | Joules | Delicate details with vintage influence and soft shades. |
+| Pepa & Co | £90–£115 | Fine-knit jumpers | Occasions | Ralph Lauren | Refined knits with classic British design heritage. |
 
 ---
 
 ### 💐 Budget Tier (Approx. £25–£70)
 | Brand | Price Range | Type | Best For | Similar To | Description |
 |--------|--------------|------|-----------|--------------|--------------|
-| **Next** | £35–£65 | Everyday sweaters | Daily wear | Joules | Soft knits in varied weights with modern patterns. |
-| **M&S Baby** | £30–£60 | Cotton cardigans | Nursery wear | Ralph Lauren | Trusted quality and gentle materials for toddler skin. |
-| **H&M Conscious** | £25–£50 | Organic knits | Everyday basics | Joules | Affordable sustainable knits with simple silhouettes. |
-| **Zara Kids** | £30–£55 | Fine rib jumpers | Transitional layering | Next | Trend-led designs in comfortable lightweight fabrics. |
-| **JoJo Maman Bébé** | £40–£70 | Chunky cotton knits | Playtime layering | Joules | Cosy textures designed for durability and warmth. |
-| **Name It** | £30–£55 | Cotton sweaters | Daily rotation | Next | Soft basics in modern colours and playful details. |
-| **George at Asda** | £25–£40 | Pullovers | Nursery essentials | Next | Easy-care knits for everyday wear. |
-| **Tu by Sainsbury’s** | £25–£45 | Knit cardigans | Everyday layering | Joules | Accessible options in soft, easy-wash materials. |
-| **Vertbaudet** | £35–£65 | Fine knits | Transitional layering | Next | Soft French-inspired knits with pastel palettes. |
-| **Gap Kids** | £40–£70 | Cotton knits | Playwear layering | Ralph Lauren | Quality everyday knits with flexible stretch. |
+| Next | £35–£65 | Everyday sweaters | Daily wear | Joules | Soft knits in varied weights with modern patterns. |
+| M&S Baby | £30–£60 | Cotton cardigans | Nursery wear | Ralph Lauren | Trusted quality and gentle materials for toddler skin. |
+| H&M Conscious | £25–£50 | Organic knits | Everyday basics | Joules | Affordable sustainable knits with simple silhouettes. |
+| Zara Kids | £30–£55 | Fine rib jumpers | Transitional layering | Next | Trend-led designs in comfortable lightweight fabrics. |
+| JoJo Maman Bébé | £40–£70 | Chunky cotton knits | Playtime layering | Joules | Cosy textures designed for durability and warmth. |
+| Name It | £30–£55 | Cotton sweaters | Daily rotation | Next | Soft basics in modern colours and playful details. |
+| George at Asda | £25–£40 | Pullovers | Nursery essentials | Next | Easy-care knits for everyday wear. |
+| Tu by Sainsbury’s | £25–£45 | Knit cardigans | Everyday layering | Joules | Accessible options in soft, easy-wash materials. |
+| Vertbaudet | £35–£65 | Fine knits | Transitional layering | Next | Soft French-inspired knits with pastel palettes. |
+| Gap Kids | £40–£70 | Cotton knits | Playwear layering | Ralph Lauren | Quality everyday knits with flexible stretch. |
 
 ---
 
@@ -706,48 +706,48 @@ Soft, breathable knitwear forms the foundation of a young girl's wardrobe — of
 ### 👑 Premium Tier (Approx. £120–£200)
 | Brand | Price Range | Type | Best For | Similar To | Description |
 |--------|--------------|------|-----------|--------------|--------------|
-| **Bonpoint** | £150–£200 | Fine merino cardigans | Smart-casual | Ralph Lauren | Elegant French design with delicate detailing and ultra-soft feel. |
-| **Il Gufo** | £130–£180 | Cashmere jumpers | Seasonal layering | Joules | Italian-made knits with refined silhouettes and comfort focus. |
-| **Caramel London** | £140–£190 | Merino pullovers | Transitional wear | Next | Luxurious, lightweight knits with artisanal craftsmanship. |
-| **La Coqueta** | £130–£180 | Cotton-blend cardigans | Everyday wear | Ralph Lauren | Spanish design known for soft structure and timeless hues. |
-| **Stella McCartney Kids** | £130–£180 | Organic cotton sweaters | Weekend wear | Adidas | Playful details with quality organic materials. |
-| **Oeuf NYC** | £140–£190 | Hand-finished knits | Cold-weather days | Saltrock | Soft, breathable wool with minimalist hand-knit design. |
-| **Gray Label** | £120–£160 | Fine rib knits | Everyday luxury | Next | Organic cotton basics with clean Scandi aesthetic. |
-| **The Little Tailor** | £130–£160 | Cotton knit cardigans | Nursery layering | Joules | British heritage-inspired knits with button-back ease. |
-| **Bonton** | £130–£180 | Patterned jumpers | Transitional layering | Joules | Subtle colour contrasts and soft ribbing for daily comfort. |
-| **Marie-Chantal** | £140–£200 | Cashmere-blend knits | Family events | Ralph Lauren | Fine luxury pieces in pastel tones with gentle charm. |
+| Bonpoint | £150–£200 | Fine merino cardigans | Smart-casual | Ralph Lauren | Elegant French design with delicate detailing and ultra-soft feel. |
+| Il Gufo | £130–£180 | Cashmere jumpers | Seasonal layering | Joules | Italian-made knits with refined silhouettes and comfort focus. |
+| Caramel London | £140–£190 | Merino pullovers | Transitional wear | Next | Luxurious, lightweight knits with artisanal craftsmanship. |
+| La Coqueta | £130–£180 | Cotton-blend cardigans | Everyday wear | Ralph Lauren | Spanish design known for soft structure and timeless hues. |
+| Stella McCartney Kids | £130–£180 | Organic cotton sweaters | Weekend wear | Adidas | Playful details with quality organic materials. |
+| Oeuf NYC | £140–£190 | Hand-finished knits | Cold-weather days | Saltrock | Soft, breathable wool with minimalist hand-knit design. |
+| Gray Label | £120–£160 | Fine rib knits | Everyday luxury | Next | Organic cotton basics with clean Scandi aesthetic. |
+| The Little Tailor | £130–£160 | Cotton knit cardigans | Nursery layering | Joules | British heritage-inspired knits with button-back ease. |
+| Bonton | £130–£180 | Patterned jumpers | Transitional layering | Joules | Subtle colour contrasts and soft ribbing for daily comfort. |
+| Marie-Chantal | £140–£200 | Cashmere-blend knits | Family events | Ralph Lauren | Fine luxury pieces in pastel tones with gentle charm. |
 
 ---
 
 ### 💎 Mid-Range Tier (Approx. £70–£120)
 | Brand | Price Range | Type | Best For | Similar To | Description |
 |--------|--------------|------|-----------|--------------|--------------|
-| **Mabli** | £80–£110 | Wool cotton knits | Autumn layering | Joules | Welsh heritage brand known for soft, patterned everyday knits. |
-| **Petit Bateau** | £75–£100 | Cotton sweaters | Transitional wear | Next | French classics in durable, soft fibres for repeat wear. |
-| **Frugi** | £70–£90 | Organic cotton jumpers | Playtime layering | Joules | Bright, fun designs that stay comfortable all day. |
-| **Morris & Co x Next** | £85–£100 | Patterned knitwear | Everyday style | Next | Heritage-inspired prints in easy-care cotton. |
-| **Lacoste Kids** | £90–£120 | Fine ribbed sweaters | Smart-casual | Ralph Lauren | Polished texture and comfortable tailoring for daily wear. |
-| **JoJo Maman Bébé** | £75–£90 | Cotton-blend cardigans | Nursery comfort | Joules | Soft touch, machine-washable cardigans in muted tones. |
-| **Scotch & Soda Kids** | £100–£120 | Light jumpers | Weekend wear | Saltrock | Textured designs with a relaxed, creative edge. |
-| **LIEWOOD** | £85–£110 | Organic rib knits | Everyday basics | Next | Scandinavian minimalism with gentle structure. |
-| **Tocoto Vintage** | £80–£110 | Cotton pullovers | Transitional wear | Joules | Delicate details with vintage influence and soft shades. |
-| **Pepa & Co** | £90–£115 | Fine-knit jumpers | Occasions | Ralph Lauren | Refined knits with classic British design heritage. |
+| Mabli | £80–£110 | Wool cotton knits | Autumn layering | Joules | Welsh heritage brand known for soft, patterned everyday knits. |
+| Petit Bateau | £75–£100 | Cotton sweaters | Transitional wear | Next | French classics in durable, soft fibres for repeat wear. |
+| Frugi | £70–£90 | Organic cotton jumpers | Playtime layering | Joules | Bright, fun designs that stay comfortable all day. |
+| Morris & Co x Next | £85–£100 | Patterned knitwear | Everyday style | Next | Heritage-inspired prints in easy-care cotton. |
+| Lacoste Kids | £90–£120 | Fine ribbed sweaters | Smart-casual | Ralph Lauren | Polished texture and comfortable tailoring for daily wear. |
+| JoJo Maman Bébé | £75–£90 | Cotton-blend cardigans | Nursery comfort | Joules | Soft touch, machine-washable cardigans in muted tones. |
+| Scotch & Soda Kids | £100–£120 | Light jumpers | Weekend wear | Saltrock | Textured designs with a relaxed, creative edge. |
+| LIEWOOD | £85–£110 | Organic rib knits | Everyday basics | Next | Scandinavian minimalism with gentle structure. |
+| Tocoto Vintage | £80–£110 | Cotton pullovers | Transitional wear | Joules | Delicate details with vintage influence and soft shades. |
+| Pepa & Co | £90–£115 | Fine-knit jumpers | Occasions | Ralph Lauren | Refined knits with classic British design heritage. |
 
 ---
 
 ### 💐 Budget Tier (Approx. £25–£70)
 | Brand | Price Range | Type | Best For | Similar To | Description |
 |--------|--------------|------|-----------|--------------|--------------|
-| **Next** | £35–£65 | Everyday sweaters | Daily wear | Joules | Soft knits in varied weights with modern patterns. |
-| **M&S Baby** | £30–£60 | Cotton cardigans | Nursery wear | Ralph Lauren | Trusted quality and gentle materials for toddler skin. |
-| **H&M Conscious** | £25–£50 | Organic knits | Everyday basics | Joules | Affordable sustainable knits with simple silhouettes. |
-| **Zara Kids** | £30–£55 | Fine rib jumpers | Transitional layering | Next | Trend-led designs in comfortable lightweight fabrics. |
-| **JoJo Maman Bébé** | £40–£70 | Chunky cotton knits | Playtime layering | Joules | Cosy textures designed for durability and warmth. |
-| **Name It** | £30–£55 | Cotton sweaters | Daily rotation | Next | Soft basics in modern colours and playful details. |
-| **George at Asda** | £25–£40 | Pullovers | Nursery essentials | Next | Easy-care knits for everyday wear. |
-| **Tu by Sainsbury’s** | £25–£45 | Knit cardigans | Everyday layering | Joules | Accessible options in soft, easy-wash materials. |
-| **Vertbaudet** | £35–£65 | Fine knits | Transitional layering | Next | Soft French-inspired knits with pastel palettes. |
-| **Gap Kids** | £40–£70 | Cotton knits | Playwear layering | Ralph Lauren | Quality everyday knits with flexible stretch. |
+| Next | £35–£65 | Everyday sweaters | Daily wear | Joules | Soft knits in varied weights with modern patterns. |
+| M&S Baby | £30–£60 | Cotton cardigans | Nursery wear | Ralph Lauren | Trusted quality and gentle materials for toddler skin. |
+| H&M Conscious | £25–£50 | Organic knits | Everyday basics | Joules | Affordable sustainable knits with simple silhouettes. |
+| Zara Kids | £30–£55 | Fine rib jumpers | Transitional layering | Next | Trend-led designs in comfortable lightweight fabrics. |
+| JoJo Maman Bébé | £40–£70 | Chunky cotton knits | Playtime layering | Joules | Cosy textures designed for durability and warmth. |
+| Name It | £30–£55 | Cotton sweaters | Daily rotation | Next | Soft basics in modern colours and playful details. |
+| George at Asda | £25–£40 | Pullovers | Nursery essentials | Next | Easy-care knits for everyday wear. |
+| Tu by Sainsbury’s | £25–£45 | Knit cardigans | Everyday layering | Joules | Accessible options in soft, easy-wash materials. |
+| Vertbaudet | £35–£65 | Fine knits | Transitional layering | Next | Soft French-inspired knits with pastel palettes. |
+| Gap Kids | £40–£70 | Cotton knits | Playwear layering | Ralph Lauren | Quality everyday knits with flexible stretch. |
 
 ---
 
@@ -800,48 +800,48 @@ This subcategory celebrates tactile charm and expressive details — from raised
 ### 👑 Premium Tier (Approx. £120–£200)
 | Brand | Price Range | Type | Best For | Similar To | Description |
 |--------|--------------|------|-----------|--------------|--------------|
-| **Bonpoint** | £150–£200 | Textured knit cardigans | Special occasions | Ralph Lauren | Parisian charm with delicate knit detailing and luxe yarns. |
-| **Caramel London** | £140–£190 | Structured knits | Dressier layering | Joules | Refined silhouettes with muted palettes and artisanal textures. |
-| **Oeuf NYC** | £160–£200 | Eco wool jumpers | Winter layering | Next | Whimsical animal motifs and hand-knit quality for tactile interest. |
-| **Stella McCartney Kids** | £130–£180 | Organic statement sweaters | Weekend wear | Adidas | Playful prints, bold trims, and creative textural patterns. |
-| **The Animals Observatory** | £140–£190 | Artistic pattern knits | Creative dressing | Saltrock | Artistic, textural pieces inspired by childlike imagination. |
-| **Tocoto Vintage** | £125–£160 | Textured pullovers | Seasonal layering | Ralph Lauren | Gentle lace-like knits and vintage-inspired cotton blends. |
-| **Bonton** | £130–£190 | Patterned cardigans | Transitional wear | Joules | Chic Parisian textures with tonal embroidery and soft palettes. |
-| **Babe & Tess** | £130–£170 | Fine ribbed knits | Smart layering | Next | Elegant, fine-textured knits with Italian craftsmanship. |
-| **Gray Label** | £120–£160 | Minimalist rib knits | Everyday luxury | Joules | Organic cotton and merino blends in calm tonal hues. |
-| **La Coqueta** | £140–£200 | Decorative knits | Family gatherings | Ralph Lauren | Spanish design with scalloped textures and refined finish. |
+| Bonpoint | £150–£200 | Textured knit cardigans | Special occasions | Ralph Lauren | Parisian charm with delicate knit detailing and luxe yarns. |
+| Caramel London | £140–£190 | Structured knits | Dressier layering | Joules | Refined silhouettes with muted palettes and artisanal textures. |
+| Oeuf NYC | £160–£200 | Eco wool jumpers | Winter layering | Next | Whimsical animal motifs and hand-knit quality for tactile interest. |
+| Stella McCartney Kids | £130–£180 | Organic statement sweaters | Weekend wear | Adidas | Playful prints, bold trims, and creative textural patterns. |
+| The Animals Observatory | £140–£190 | Artistic pattern knits | Creative dressing | Saltrock | Artistic, textural pieces inspired by childlike imagination. |
+| Tocoto Vintage | £125–£160 | Textured pullovers | Seasonal layering | Ralph Lauren | Gentle lace-like knits and vintage-inspired cotton blends. |
+| Bonton | £130–£190 | Patterned cardigans | Transitional wear | Joules | Chic Parisian textures with tonal embroidery and soft palettes. |
+| Babe & Tess | £130–£170 | Fine ribbed knits | Smart layering | Next | Elegant, fine-textured knits with Italian craftsmanship. |
+| Gray Label | £120–£160 | Minimalist rib knits | Everyday luxury | Joules | Organic cotton and merino blends in calm tonal hues. |
+| La Coqueta | £140–£200 | Decorative knits | Family gatherings | Ralph Lauren | Spanish design with scalloped textures and refined finish. |
 
 ---
 
 ### 💎 Mid-Range Tier (Approx. £70–£120)
 | Brand | Price Range | Type | Best For | Similar To | Description |
 |--------|--------------|------|-----------|--------------|--------------|
-| **Mabli** | £80–£110 | Patterned wool knits | Cold-weather wear | Joules | Scandi-inspired textures with ethical wool blends. |
-| **LIEWOOD** | £85–£100 | Textured organic cotton knits | Everyday layering | Next | Playful modern designs with gentle texture play. |
-| **Mini Rodini** | £90–£120 | Statement jumpers | Weekend outings | Saltrock | Bold prints and sustainable fabrics with tactile details. |
-| **Petit Bateau** | £70–£110 | Ribbed cotton sweaters | Transitional wear | Next | French heritage knits with durable structure and charm. |
-| **Frugi** | £70–£90 | Colour-pop jumpers | Outdoor play | Joules | Bright organic cotton blends designed for durability. |
-| **Morris & Co x Next** | £85–£100 | Patterned collaboration knits | Everyday statement | Next | Exclusive textured patterns with heritage prints. |
-| **JoJo Maman Bébé** | £75–£90 | Cable knits | Layering | Joules | Gentle cable and basket-weave knits for daily wear. |
-| **Lacoste Kids** | £90–£120 | Textured logo jumpers | Smart casual | Ralph Lauren | Sporty rib textures with a neat, structured finish. |
-| **Scotch & Soda Kids** | £100–£120 | Patterned knits | Everyday chic | Saltrock | Artistic designs in soft blends with durable structure. |
-| **Pepa & Co** | £95–£115 | Embroidered knits | Special occasions | Ralph Lauren | Elegant textures and heritage silhouettes with British flair. |
+| Mabli | £80–£110 | Patterned wool knits | Cold-weather wear | Joules | Scandi-inspired textures with ethical wool blends. |
+| LIEWOOD | £85–£100 | Textured organic cotton knits | Everyday layering | Next | Playful modern designs with gentle texture play. |
+| Mini Rodini | £90–£120 | Statement jumpers | Weekend outings | Saltrock | Bold prints and sustainable fabrics with tactile details. |
+| Petit Bateau | £70–£110 | Ribbed cotton sweaters | Transitional wear | Next | French heritage knits with durable structure and charm. |
+| Frugi | £70–£90 | Colour-pop jumpers | Outdoor play | Joules | Bright organic cotton blends designed for durability. |
+| Morris & Co x Next | £85–£100 | Patterned collaboration knits | Everyday statement | Next | Exclusive textured patterns with heritage prints. |
+| JoJo Maman Bébé | £75–£90 | Cable knits | Layering | Joules | Gentle cable and basket-weave knits for daily wear. |
+| Lacoste Kids | £90–£120 | Textured logo jumpers | Smart casual | Ralph Lauren | Sporty rib textures with a neat, structured finish. |
+| Scotch & Soda Kids | £100–£120 | Patterned knits | Everyday chic | Saltrock | Artistic designs in soft blends with durable structure. |
+| Pepa & Co | £95–£115 | Embroidered knits | Special occasions | Ralph Lauren | Elegant textures and heritage silhouettes with British flair. |
 
 ---
 
 ### 💐 Budget Tier (Approx. £25–£70)
 | Brand | Price Range | Type | Best For | Similar To | Description |
 |--------|--------------|------|-----------|--------------|--------------|
-| **Next** | £35–£65 | Textured cardigans | Everyday layering | Joules | Reliable quality with varied textures and soft hues. |
-| **M&S Baby** | £30–£60 | Cotton knits | Daily comfort | Ralph Lauren | Soft, breathable knits in pastel tones and simple textures. |
-| **H&M Conscious** | £25–£50 | Organic cotton jumpers | Casual wear | Joules | Sustainable textured designs in lightweight knits. |
-| **Zara Kids** | £30–£55 | Statement cardigans | Everyday fashion | Next | Trend-led textures with muted palettes for modern looks. |
-| **JoJo Maman Bébé** | £40–£70 | Chunky cotton knits | Outdoor wear | Joules | Tactile knits designed for warmth and easy movement. |
-| **Name It** | £30–£55 | Patterned sweaters | Playtime layering | Next | Affordable textured pieces with soft yarns and fun tones. |
-| **George at Asda** | £25–£40 | Textured pullovers | Everyday essentials | Next | Accessible and practical with child-safe embellishments. |
-| **Tu by Sainsbury’s** | £25–£45 | Cable knits | Nursery wear | Joules | Budget-friendly, easy-wash textures for daily use. |
-| **Vertbaudet** | £35–£65 | Jacquard knits | Transitional wear | Next | Gentle jacquard textures with French pastel charm. |
-| **Gap Kids** | £40–£70 | Rib knits | Weekend layering | Ralph Lauren | Classic cotton pieces with quality finishes and soft hand feel. |
+| Next | £35–£65 | Textured cardigans | Everyday layering | Joules | Reliable quality with varied textures and soft hues. |
+| M&S Baby | £30–£60 | Cotton knits | Daily comfort | Ralph Lauren | Soft, breathable knits in pastel tones and simple textures. |
+| H&M Conscious | £25–£50 | Organic cotton jumpers | Casual wear | Joules | Sustainable textured designs in lightweight knits. |
+| Zara Kids | £30–£55 | Statement cardigans | Everyday fashion | Next | Trend-led textures with muted palettes for modern looks. |
+| JoJo Maman Bébé | £40–£70 | Chunky cotton knits | Outdoor wear | Joules | Tactile knits designed for warmth and easy movement. |
+| Name It | £30–£55 | Patterned sweaters | Playtime layering | Next | Affordable textured pieces with soft yarns and fun tones. |
+| George at Asda | £25–£40 | Textured pullovers | Everyday essentials | Next | Accessible and practical with child-safe embellishments. |
+| Tu by Sainsbury’s | £25–£45 | Cable knits | Nursery wear | Joules | Budget-friendly, easy-wash textures for daily use. |
+| Vertbaudet | £35–£65 | Jacquard knits | Transitional wear | Next | Gentle jacquard textures with French pastel charm. |
+| Gap Kids | £40–£70 | Rib knits | Weekend layering | Ralph Lauren | Classic cotton pieces with quality finishes and soft hand feel. |
 
 ---
 
