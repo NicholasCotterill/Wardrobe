@@ -8,8 +8,8 @@ A central index for client wardrobe atlases — curated collections of looks, st
 
 | Client | Link | Description |
 |:--|:--|:--|
-| S.C | [View Atlas](atlases/client-a.md) | Modern professional wardrobe — neutral tones, minimal silhouettes. |
-| **Client B** | [View Atlas](atlases/client-b.md) | Bohemian-inspired looks — textures, flow, and vibrant accessories. |
+| S.C | [View Atlas](Wardrobes/S.C_Atlas.md) | Atlas of Brands Specifically for S.C. |
+| I.C | [View Atlas](Wardrobes/I.C_Atlas.md) | Atlas of Brands Specifically for I.C. |
 | **Client C** | [View Atlas](atlases/client-c.md) | Elevated casual — smart layering and premium basics. |
 | **Client D** | [View Atlas](atlases/client-d.md) | Red carpet and event wear — tailored and elegant pieces. |
 
