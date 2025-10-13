@@ -1,9 +1,3 @@
-
-
-</div>
-
-<div align="center">
-
 ## **A Cartography of Elegance, Intention, and Identity**
 
 — ✦ — ✦ — ✦ —  
@@ -26,8 +20,6 @@
 # — ✦ — ✦ — ✦ —
 
 ## **Table of Contents**
-
-</div>
 
 ### **Introduction**
 - 👗 [Foundations of the Wardrobe](#-foundations-of-the-wardrobe)
