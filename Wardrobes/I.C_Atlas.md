@@ -27,16 +27,20 @@
 [Active & Playwear Bottoms](#-active--playwear-bottoms)  
 [Seasonal & Play Shorts](#-seasonal--play-shorts)  
 [Swim & Holiday Shorts](#-swim--holiday-shorts)
-    [Swimwear Safety & Care Addendum](#-swimwear-safety--care-addendum)
+[Swimwear Safety & Care Addendum](#-swimwear-safety--care-addendum)
 [Smart & Occasion Bottoms](#-smart--occasion-bottoms)  
 [Patterned & Statement Bottoms](#-patterned--statement-bottoms)  
 [Utility, Cargo & Practical Bottoms](#-utility-cargo--practical-bottoms)  
 [The Denim Edit](#-the-denim-edit)
-    [1. Soft Denim & Jeggings](#1-soft-denim--jeggings)
-    [2. Denim Dresses, Dungarees & Pinafores](#2-denim-dresses-dungarees--pinafores)
-    [3. Classic & Contemporary Denim Jeans](#3-classic--contemporary-denim-jeans)
+[Soft Denim & Jeggings](#1-soft-denim--jeggings)
+[Denim Dresses, Dungarees & Pinafores](#2-denim-dresses-dungarees--pinafores)
+[Classic & Contemporary Denim Jeans](#3-classic--contemporary-denim-jeans)
 [Transitional & Layering Bottoms](#-transitional--layering-bottoms)
 
+
+### IV. Trousers, Shorts & Bottoms
+
+[Everyday Trousers & Leggings](#-everyday--trousers--leggings)  
 ---
 
 
@@ -2372,3 +2376,1215 @@ Perfect for nursery runs, countryside walks, and weekend layering — practical 
 
 ---
 
+### ✨ Chapter Summary  
+
+**Overview:**  
+Chapter VI establishes the foundation of a young girl’s everyday wardrobe through comfortable and coordinated bottomwear. It highlights soft fabrics, thoughtful detailing, and balanced silhouettes that encourage movement while maintaining a polished, age-appropriate aesthetic. From everyday leggings to refined culottes, the emphasis is on versatility, durability, and cohesive pairing with tops, knitwear, and outerwear from preceding chapters.  
+
+**Seasonal Adaptation:**  
+Each subcategory has been selected for year-round functionality. Lightweight cottons and linen blends offer breathability for spring and summer, while corduroy, brushed twill, and thermal-lined fabrics ensure warmth and layering potential in autumn and winter. Seasonal and functional bottoms, such as waterproof or fleece-lined options, support outdoor activity without compromising comfort or coordination.  
+
+**Outfit Integration:**  
+Trousers, shorts, and skirts serve as the grounding elements for a cohesive wardrobe. Everyday trousers and leggings provide neutral foundations for printed tops and knitwear, while smart bottoms and skirts complement formal blouses or tailored outerwear. This chapter ensures seamless visual flow between playwear and occasion outfits, reinforcing both style unity and functional layering potential.  
+
+**Final Recommendation:**  
+Focus on pieces that balance softness, flexibility, and subtle design features. Choose breathable fabrics, elastic or adjustable waistbands, and reinforced seams for longevity. Build a capsule selection that mixes casual and polished styles across materials and tones — allowing effortless pairing with existing wardrobe staples and ensuring practicality through every season.
+
+---
+
+# Chapetr V: 👚 Tops & Blouses 
+
+## Executive Summary
+
+The *Tops & Blouses* chapter establishes the soft, breathable backbone of a young girl’s wardrobe—pieces that balance ease, durability, and aesthetic charm. Designed for a 2-year-old, this range emphasizes gentle natural fabrics such as organic cotton, fine poplin, and soft jersey to support comfort throughout play and rest.  
+
+Each subcategory—from everyday cotton tees to refined dress blouses and printed statement tops—contributes to a cohesive rotation that can transition effortlessly between home, playdates, and family outings. Practical design details like covered buttons, elasticated necklines, and flat seams enhance independence and mobility while maintaining a polished finish.  
+
+The chapter also introduces layering flexibility, encouraging smart pairings with trousers, skirts, and dungarees across the year. Thoughtful brand selection ensures a balance between premium craftsmanship and everyday practicality, offering dependable quality across price tiers.  
+
+Ultimately, *Tops & Blouses* refines the wardrobe’s foundation—delivering timeless comfort, child-safe materials, and playful sophistication suited to both growth and activity.
+
+---
+
+### 1. Everyday Cotton & Jersey Tops  
+
+Soft, breathable, and easy to layer — these pieces form the foundation of a toddler’s daily wardrobe. Prioritise natural fibres for comfort, movement, and easy care.
+
+---
+
+#### **🌟 Purpose**
+To provide comfortable, durable, and stylish everyday tops that balance aesthetic charm with practicality. Pieces should be easy to mix and match with shorts, skirts, and trousers while ensuring softness and freedom of movement.
+
+---
+
+#### 💎 Premium Tier (Under £200)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|:--|:--|:--|:--|:--|:--|
+| **Bonpoint** | £120–£180 | Heritage Luxury | Soft cotton blouses & tees | Jacadi | Iconic French maison known for elevated simplicity and fine pima cotton. |
+| **Bonton** | £80–£150 | Parisian Casual | Playful prints & relaxed cotton jersey | Bonpoint | Soft-washed finishes with subtle colour palettes and vintage-inspired charm. |
+| **The Animals Observatory** | £70–£130 | Designer Casual | Graphic cotton tees | Bobo Choses | Contemporary, art-led styles with a creative twist. |
+| **Oeuf NYC** | £90–£160 | Sustainable Premium | Minimal organic cotton tees | Gray Label | Eco-conscious, gender-neutral essentials with elevated craftsmanship. |
+| **Stella McCartney Kids** | £60–£120 | Designer Playwear | Fun prints & vibrant cotton | Kenzo Kids | Bold colours and sustainable organic cotton with playful motifs. |
+| **Mini Rodini** | £60–£110 | Sustainable Statement | Printed organic jersey tops | The Animals Observatory | Eclectic, whimsical prints with certified organic production. |
+| **Caramel London** | £100–£160 | Boutique Luxury | Fine poplin & slub cotton | Bonpoint | Understated tones and soft tailoring ideal for layering. |
+| **Tartine et Chocolat** | £80–£150 | Classic French | Decorative blouses & tees | Jacadi | Elegant and refined everyday cotton wear with delicate detailing. |
+| **Pepa & Co** | £70–£120 | British Heritage | Cotton blouses & Peter Pan collars | Rachel Riley | Traditional silhouettes with impeccable finish and timeless patterns. |
+| **Zimmermann Kids** | £100–£180 | Designer | Statement cotton tops | Bonpoint | Signature romantic prints and fine cotton structure with artisanal details. |
+
+---
+
+#### 💠 Mid-Range Tier (£50–£100)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|:--|:--|:--|:--|:--|:--|
+| **Mabli** | £55–£85 | Modern Heritage | Organic cotton tops | Gray Label | Wales-based, soft-textured cotton and natural dyes. |
+| **Little Cotton Clothes** | £40–£75 | Cottagecore Classic | Cotton blouses | Oliver & Rain | British-made, feminine cotton pieces with hand-finished touches. |
+| **Ketiketa** | £60–£90 | Bohemian Luxe | Light cotton tops | Caramel London | Airy cotton voile and subtle embroidery, ethically crafted. |
+| **Nobodinoz** | £50–£80 | Sustainable Everyday | Organic jersey | The Simple Folk | Spanish-made essentials from organic GOTS cotton. |
+| **Tocoto Vintage** | £55–£85 | Playful Retro | Vintage-look cotton | Bonton | Sweet, nostalgic aesthetic with soft textures and aged tones. |
+| **Bobo Choses** | £60–£90 | Artistic Casual | Printed tees | Mini Rodini | Whimsical, playful prints perfect for creative toddlers. |
+| **Patachou** | £55–£85 | Traditional Smart | Classic cotton blouses | Mayoral | Smart details like ruffles and trims, ideal for layering. |
+| **Tinycottons** | £50–£90 | Modern Playwear | Everyday jersey | Bobo Choses | Graphic-driven, sustainable cotton essentials. |
+| **Louise Misha** | £55–£95 | Bohemian Romantic | Embroidered cotton | Ketiketa | Feminine cotton pieces with subtle detailing and soft hues. |
+| **The Simple Folk** | £60–£85 | Minimalist Sustainable | Organic cotton tops | Gray Label | Simplistic, durable basics with ethical production values. |
+
+
+---
+
+#### 💗 Budget Tier (Under £50)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|:--|:--|:--|:--|:--|:--|
+| **Zara Kids (Organic Line)** | £15–£35 | High-Street Everyday | Cotton tees | H&M Conscious | Affordable, organic cotton with trend-led designs. |
+| **H&M Conscious Kids** | £10–£25 | Budget Sustainable | Jersey basics | Zara Kids | Simple, colourful options made with organic cotton. |
+| **Next Baby & Toddler** | £10–£30 | Everyday Value | Multipack tops | M&S Kids | Soft, washable cotton essentials with prints and easy fastenings. |
+| **M&S Kids** | £10–£35 | Everyday Basics | School & play cotton tops | John Lewis Baby | Reliable quality and multipack value. |
+| **JoJo Maman Bébé** | £15–£35 | Classic Practical | Striped & appliqué tops | Frugi | Comfortable cotton styles for active play. |
+| **Frugi** | £20–£40 | Sustainable Colourful | Organic jersey tops | Kite | Bright, playful prints and organic fabrics. |
+| **Vertbaudet** | £15–£35 | French Everyday | Value cotton blouses | La Redoute Kids | Affordable European designs with charming prints. |
+| **La Redoute Kids** | £15–£35 | French Casual | Basic cotton & jersey | Vertbaudet | Simple, good-quality cotton wardrobe staples. |
+| **Kite Clothing** | £20–£40 | Ethical Comfort | Organic cotton tops | Frugi | Fun patterns and soft cotton ideal for toddlers. |
+| **George at Asda (Organic Line)** | £5–£15 | Value Sustainable | Basics multipack | Primark Kids | Accessible and soft-touch options with good wash durability. |
+
+---
+
+#### **🎨 Style Notes**
+- **🌤 Layering:** Combine with cotton leggings or denim dungarees for transitional comfort.  
+- **🧺 Care:** Choose pre-shrunk or garment-washed cotton for minimal size change.  
+- **🎨 Outfit Coordination:** Stick to versatile tones — soft pinks, sage greens, neutrals, or Breton stripes.  
+- **🧷 Safety:** Prioritise flat seams and printed labels over tags to prevent irritation.  
+- **🎠 Activity Fit:** Look for designs with added stretch and shoulder snaps for easy dressing.  
+- **🪡 Play-Friendly Fabrics:** Opt for brushed cotton or cotton-modal blends that stay soft after repeated washing. Avoid stiff interlocks that limit movement.  
+
+---
+
+#### **🩷 Subcategory Summary**
+Everyday cotton and jersey tops should form the backbone of the 2-year-old’s wardrobe, combining breathable comfort with wash-friendly practicality. Neutral and timeless prints extend wearability across seasons.
+
+---
+
+#### **💡 Client Recommendations**
+- Maintain a base wardrobe of **6–8 tops per size**, including both long and short sleeves.  
+- Select **2–3 multi-packs** for value and consistency.  
+- Rotate between **premium and mid-range** pieces to ensure balance between longevity and cost-efficiency.  
+- Wash and air-dry tops inside out to retain colour vibrancy.  
+
+—
+
+## 👚 Subcategory: Blouses & Dressy Cotton Tops  
+
+### **Overview**  
+Polished yet comfortable tops that bridge the gap between everyday wear and more refined dressing. These pieces use breathable natural fabrics like cotton voile, poplin, and linen blends, designed for movement and softness against sensitive skin. Ruffles, soft pleats, and embroidered trims add a gentle charm suitable for both daily and occasion wear.
+
+---
+
+### **Purpose**  
+To introduce structured yet comfortable tops that elevate casual outfits without compromising practicality — perfect for playdates, family outings, or mild special occasions.
+
+---
+
+#### 💎 Premium Tier (Under £200)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|:--|:--|:--|:--|:--|:--|
+| **The Little White Company** | £60–£120 | Luxury cotton & linen blouses | Timeless neutrals and gentle embroidery | Ralph Lauren | Elegant yet soft; heirloom quality suitable for keepsake dressing. |
+| **Olivier London** | £70–£150 | Smocked blouses | Traditional British craftsmanship | Joules | Classic shapes with soft Liberty-inspired prints. |
+| **Caramel London** | £90–£190 | Printed and checked cotton tops | Sophisticated tonal palette | Ralph Lauren | London luxury label offering distinctive textures and tailoring. |
+| **Amaia Kids** | £80–£150 | Cotton poplin & embroidered blouses | Formal occasions | Joules | Princess Charlotte–worn brand; impeccable finish and comfort. |
+| **La Coqueta** | £90–£170 | Traditional Spanish-influenced cottons | Smart occasions | Ralph Lauren | Sweet detailing and full sleeve shapes. |
+| **Petit Bateau** | £75–£130 | Organic cotton blouses | Everyday premium comfort | Next | Durable French classic with clean lines. |
+| **Bonnet à Pompon** | £90–£160 | Romantic cotton tops | Dressy days | Joules | Airy textures with soft detailing for warmer months. |
+| **Patachou** | £80–£150 | Structured dressy cotton | Family events | Ralph Lauren | Elegant yet washable cotton options. |
+| **RaspberryPlum** | £95–£180 | Statement cotton tops | Editorial style | Caramel | Playful yet refined, with sustainable focus. |
+| **Trotters London** | £85–£150 | British polished cottons | Smart dressing | The Little White Company | Classic collars, pintucks, and Peter Pan finishes. |
+
+
+---
+
+#### 💠 Mid-Range Tier (£50–£100)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|:--|:--|:--|:--|:--|:--|
+| **Frugi** | £55–£75 | Organic cotton blouses | Everyday wear | Joules | Bright, GOTS-certified prints with toddler-friendly fit. |
+| **Boden** | £50–£90 | Jersey and cotton dressy tops | Smart-casual | Next | British staple with charming embroidery. |
+| **Mabli** | £65–£95 | Cotton & merino blends | Transitional wear | Joules | Ethically made, soft retro textures. |
+| **Pigeon Organics** | £50–£80 | Sustainable cotton | Eco-friendly wardrobe | Frugi | Organic basics with delicate styling. |
+| **Dotty Dungarees** | £55–£85 | Blouses to layer under dungarees | Playwear | Joules | Coordinated cotton tops with nostalgic edge. |
+| **Albetta** | £60–£90 | Embroidered cotton | Gifting | The Little White Company | Soft, handmade-feel embroidery. |
+| **JoJo Maman Bébé** | £50–£70 | Poplin and jersey blouses | Nursery to outings | Next | Reliable fit and comfort-first. |
+| MORI | £55–£90 | Bamboo-cotton tops | Layering | Frugi | Ultra-soft feel and modern shapes. |
+| **Trotters Own** | £55–£95 | Smart cotton | Special occasions | Boden | Classic designs with UK manufacture. |
+| **Blue Almonds** | £60–£100 | Boutique cotton | Dressy wear | Amaia Kids | Luxury finish from UK children's atelier. |
+
+---
+
+#### 💗 Budget Tier (Under £50)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|:--|:--|:--|:--|:--|:--|
+| **Next** | £20–£40 | Cotton mix tops | Everyday use | Joules | Practical, playful, and accessible. |
+| **M&S Kids** | £18–£45 | Blouses & tops | Nursery days | The Little White Company | Reliable, easy to wash, and stylish. |
+| **H&M Conscious Kids** | £15–£35 | Organic cotton tops | Basics | Frugi | Sustainable budget choice. |
+| **Zara Mini** | £18–£40 | Dressy cotton blouses | Playdates | Caramel | Trend-led soft cottons. |
+| **George at Asda** | £10–£25 | Cotton tops | Everyday nursery | Next | Good durability for price. |
+| **Tu at Sainsbury’s** | £12–£28 | Printed cotton tops | Everyday | Boden | Fun patterns and bright trims. |
+| **Vertbaudet** | £25–£45 | Cotton & linen blends | Transitional wear | Joules | Soft continental style. |
+| **Matalan Kids** | £10–£20 | Cotton tops | Everyday value | Next | Colourful toddler styles. |
+| **Hush Little Baby Boutique** | £30–£45 | Small-brand cotton | Dressy-casual | Trotters | Handmade look at affordable pricing. |
+| **F&F at Tesco** | £10–£25 | Cotton basics | Day-to-day | Next | Accessible, practical, and easy-care. |
+
+---
+
+#### Stylist Notes
+
+**🌤 Layering & Practical Styling**  
+Dressy blouses for a 2-year-old should retain *easy-wear construction* — think *elasticated cuffs, back button or popper fastenings**, and *soft inner seams* to avoid irritation. Pair premium cotton and linen blouses with *cord skirts, fine knit cardigans*, or *dungarees* for smart but playful looks. Ensure *freedom of movement* by choosing slightly relaxed fits or boxy shapes, ideal for active toddlers.
+
+**🧺 Care & Fabric Guidance**  
+Focus on *machine-washable cotton poplins, organic blends, or lightly textured weaves* that maintain their structure without stiffness. Avoid fabrics requiring ironing where possible — *wrinkle-tolerant linen mixes* offer an elevated but low-maintenance option. For embroidered or smocked styles, wash inside out in a delicate cycle or hand wash to protect detailing.
+
+**🎨 Outfit Coordination Tips**  
+Keep a *soft pastel or nature-inspired palette* to pair across seasonal bottoms — such as *sage greens, rose pinks, chamomile yellows, and oatmeal neutrals*. Dressy cotton blouses complement printed skirts or statement trousers perfectly when balanced with neutral knit layers. Add a touch of personality with *Peter Pan collars, ruffles, or light embroidery*, ensuring harmony rather than overload.
+
+**🧷 Safety & Fit Consideration**  
+For a toddler, comfort and practicality take priority — ensure *no loose embellishments*, *no metal zippers*, and *snug necklines* that can be slipped on easily. Prefer *natural or nickel-free fastenings* and confirm that sleeves can be rolled or secured for play. Smocked fronts or elastic waistlines allow flexibility through growth spurts.
+
+**🎠 Activity Versatility**  
+Dressy blouses can adapt beautifully across settings — from *family gatherings to casual playdates*. Pair premium tops with *jersey leggings* for comfort or *cord skirts* for a more polished finish. Styles with *layered collars or lace trims* can double as focal points under dungaree dresses, giving practicality a refined edge.
+
+**🪡 Play-Friendly Fabrics**  
+Look for *breathable cotton voile, soft poplin, and pre-washed linen*. These materials allow comfort during play while still appearing refined. Avoid heavy or scratchy lace and opt for soft-touch detailing where possible.
+
+---
+
+### ✨ Subcategory Summary  
+
+*Overview:*  
+“Blouses & Dressy Cotton Tops” bridge the gap between *classic British elegance and modern everyday comfort*. The emphasis is on *lightweight structure, breathable organic materials, and playful detailing*, suitable for both nursery days and family occasions.  
+
+*Seasonal Adaptation:*  
+Cotton and linen bases transition well across the year. Layer under *cardigans, dungaree sets, or cord pinafores* in cooler months, and wear solo with bloomers or shorts in spring and summer.  
+
+*Outfit Integration:*  
+Acts as a foundational wardrobe category — coordinating seamlessly with the *Trousers, Skirts, and Knitwear* chapters. Soft colour palettes and subtle prints enhance flexibility across outfits.  
+
+*Final Recommendation:*  
+For the client’s 2-year-old daughter, focus on *The Little White Company, Olivier London, and Frugi* as the signature trio — offering a perfect balance of *refined design, comfort, and longevity*. Use *Next* and *M&S Kids* to expand everyday options affordably, maintaining consistent comfort and easy layering.
+
+---
+
+### 💡 Client Recommendations  
+
+- Prioritize *organic, machine-washable cotton* fabrics to balance aesthetics with practicality.  
+- Introduce *smocked or embroidered details* sparingly for visual interest without compromising comfort.  
+- Build around a *neutral base wardrobe* (white, oatmeal, soft blush, and muted floral prints) to enable easy coordination with existing Joules and Ralph Lauren items.  
+- Include at least *two premium heritage-style blouses* each season for milestone photos or family gatherings.  
+- Maintain a blend of *everyday and special occasion tops* — roughly 70% casual organic, 30% dressy refined.  
+- Rotate in *one new sustainable or UK small-brand find* each season to keep the wardrobe evolving with personality.
+
+---
+
+### 🪩 Patterned & Statement Tops
+
+**Purpose:**  
+To introduce playful visual interest and texture into the everyday wardrobe through prints, embroidery, and gentle structure. These tops elevate basic looks while maintaining comfort, durability, and washability for active toddlers. Focus on tactile-safe details and easy movement.
+
+---
+
+#### 💎 Premium Tier (Under £200)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| **Bonpoint** | £100–£180 | Printed Cotton Tops | Luxe everyday prints | Jacadi | Fine cotton voile blouses with delicate motifs. |
+| **Patachou** | £90–£160 | Dressy Statement Tops | Party layering | Tartine et Chocolat | Elegant yet soft printed styles with lace or frill detailing. |
+| **Stella McCartney Kids** | £70–£140 | Graphic Tops | Fun patterns | Kenzo Kids | Bright, ethically made prints from organic cotton. |
+| **Caramel London** | £90–£180 | Artisanal Blouses | Heritage aesthetic | Bonton | Hand-block prints and unique fabric textures. |
+| **Bonton** | £80–£160 | Patterned Blouses | Parisian casual charm | Caramel | Soft floral cottons and mini checks for layering. |
+| **Tartine et Chocolat** | £100–£180 | Statement Tops | Special outings | Bonpoint | Embroidered voile and ruffle-collar cotton tops. |
+| **Trotters** | £70–£130 | Printed Tops | Smart everyday | Jacadi | Liberty-inspired prints and tailored cotton. |
+| **Il Gufo** | £100–£190 | Dressy Tops | Occasions | Bonpoint | Soft pleated cottons with light print accents. |
+| **Kenzo Kids** | £80–£150 | Graphic Tees | Bold design | Stella McCartney Kids | Iconic logo prints with fun toddler appeal. |
+| **Chloe Kids** | £120–£180 | Embroidered Tops | Dressy playdates | Bonpoint | Lightweight organic blends with soft metallic thread. |
+
+---
+
+#### 💠 Mid-Range Tier (£50–£100)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| **MORI** | £55–£80 | Printed Jersey Tops | Everyday comfort | Little Cotton Clothes | Eco-friendly cotton with gentle prints. |
+| **Boden Mini** | £45–£80 | Patterned Tops | Playful classics | Joules | Easy-care cottons in signature bright prints. |
+| **Little Cotton Clothes** | £60–£90 | Floral & Smocked Tops | Heritage charm | MORI | Softly gathered blouses in subtle florals. |
+| **Frugi** | £45–£70 | Organic Graphic Tops | Sustainable playwear | Polarn O. Pyret | Bright eco prints and long-lasting quality. |
+| **Polarn O. Pyret** | £50–£90 | Patterned Jersey Tops | Everyday wear | Frugi | Bold stripes and durable cotton jersey. |
+| **Oliver + Rain** | £55–£85 | Printed Tops | Transitional dressing | MORI | Lightweight, soft tops with gentle prints. |
+| **The Simple Folk** | £60–£95 | Textured Tops | Neutral aesthetic | Gray Label | Minimal printed organic cotton. |
+| **Petit Bateau** | £55–£85 | Breton Tops | Casual staples | Boden | Classic stripes in organic cotton. |
+| **LIEWOOD** | £60–£85 | Playful Prints | Modern patterns | Konges Sløjd | Muted prints on soft organic cotton. |
+| **Konges Sløjd** | £55–£95 | Graphic Tops | Nordic whimsy | LIEWOOD | Whimsical prints and soft palettes. |
+
+---
+
+#### 💗 Budget Tier (Under £50)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| **H&M Conscious Kids** | £15–£40 | Printed Cotton Tops | Everyday basics | Zara Kids | Soft organic cotton in bright motifs. |
+| **Zara Kids** | £20–£40 | Patterned Tops | Trendy casual | H&M | Fashion-forward styles for layering. |
+| **M&S Kids** | £25–£45 | Printed Tops | Daily wear | Next | Durable cotton prints with classic fits. |
+| **Next** | £20–£40 | Patterned Tops | Playful everyday | M&S | Colourful, easy-wash jersey tops. |
+| **Tu at Sainsbury’s** | £12–£35 | Printed Tops | Budget staples | George | Soft cotton, easy-wear styles for play. |
+| **George at Asda** | £10–£30 | Everyday Printed Tops | Nursery-friendly | Tu | Machine-washable prints and comfortable fits. |
+| **Vertbaudet** | £25–£45 | Patterned Tops | Layering | M&S | Durable cotton with French styling. |
+| **Matalan Kids** | £10–£25 | Everyday Prints | Budget playwear | Tu | Bright, age-appropriate graphics. |
+| **Primark Kids** | £5–£15 | Printed Tees | Budget basics | H&M | Value cotton tops in colourful designs. |
+| **Nutmeg by Morrisons** | £8–£25 | Printed Tops | Everyday nursery | George | Soft cotton and cheerful prints. |
+
+---
+
+### 🎨 Style Notes
+- **🌼 Fabric & Print Play:** Focus on lightweight cottons and poplins with floral, gingham, and whimsical motifs. Avoid scratchy appliqués or overly stiff prints.  
+- **🧷 Safety & Fit Considerations:** Ensure small embellishments are securely attached and avoid long ties or cords. Opt for soft inner seams and gentle elastic at wrists.  
+- **🩰 Comfort & Layering:** Designed to mix effortlessly with leggings, bloomers, or denim pieces for flexible outfits.  
+- **🎠 Activity Versatility:** Perfect for day outings, photos, and casual playdates — elevating simple looks while remaining movement-friendly.  
+- **🪡 Play-Friendly Fabrics:** Prioritize soft-touch cotton blends and wash-durable prints.  
+- **🌦️ Seasonal Adaptability:** Layer with cardigans or fine knits in cooler weather.
+
+---
+
+### ✨ Subcategory Summary  
+*Overview:* Printed and statement tops bridge comfort and style, making them the go-to choice for toddler wardrobes that value both charm and practicality.  
+*Seasonal Adaptation:* Ideal year-round — lightweight fabrics for summer, easily layered for cooler months.  
+*Outfit Integration:* Works across casual trousers, denim, and skirts for balanced everyday looks.  
+*Final Recommendation:* Prioritize soft cotton tops with subtle pattern detailing for comfort and versatility.
+
+---
+
+### 💎 Client Recommendations
+- Focus on *premium and mid-tier brands* like *Caramel*, *Bonpoint*, and *Little Cotton Clothes* for heritage appeal and softness.  
+- Include *two to three bold print options* per season to add variety without overloading the wardrobe.  
+- Choose *soft, neutral-toned patterns* for mix-and-match flexibility across chapters.  
+- Avoid overly synthetic fabrics or heavily embellished designs to maintain safety and comfort.
+
+---
+
+### 🍂 Seasonal & Transitional Tops
+
+**Purpose:**  
+To provide layering versatility and comfort during changing weather. These tops bridge the gap between warm and cool seasons, often featuring slightly heavier fabrics, long sleeves, and cozy details that maintain breathability and movement.
+
+---
+
+#### 👑 Premium (up to £200)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| **Bonpoint** | £100–£180 | Brushed Cotton Tops | Autumn layering | Caramel London | Luxuriously soft cotton with delicate prints. |
+| **Caramel London** | £90–£160 | Transitional Tops | Between-seasons wear | Bonton | Handwoven cotton and fine jersey with rich tones. |
+| **Bonton** | £85–£150 | Long-Sleeve Tops | Cool-weather layering | Bonpoint | Textured cottons and simple embroidered details. |
+| **Il Gufo** | £100–£180 | Quilted Jersey Tops | Transitional warmth | Tartine et Chocolat | Soft padded knits in pastel hues. |
+| **Tartine et Chocolat** | £100–£160 | Textured Cotton Tops | Smart layering | Bonpoint | Decorative collars and ruffles in warm neutrals. |
+| **Patachou** | £90–£150 | Long-Sleeve Dressy Tops | Light layering | Jacadi | Lightweight brushed cotton with subtle structure. |
+| **Stella McCartney Kids** | £70–£130 | Graphic Long-Sleeves | Playful transition wear | Kenzo Kids | Organic cotton with nature-inspired prints. |
+| **Jacadi Paris** | £90–£160 | Layering Tops | Seasonal elegance | Bonpoint | Chic collars and refined cotton twill fabrics. |
+| **Trotters** | £70–£120 | Brushed Cotton Tops | Classic layering | Jacadi | Soft brushed cottons ideal under knitwear. |
+| **Chloe Kids** | £120–£180 | Soft Fleece Tops | Chic casual wear | Il Gufo | Cozy yet refined tops for cooler days. |
+
+---
+
+#### 💎 Mid-Range (£50–£100)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| **MORI** | £55–£85 | Long-Sleeve Tops | Everyday layering | Frugi | Bamboo-cotton blend, thermoregulating fabrics. |
+| **Frugi** | £45–£75 | Organic Cotton Tops | Seasonal transition | Polarn O. Pyret | Thicker organic cotton for durability and warmth. |
+| **Polarn O. Pyret** | £50–£90 | Striped Jersey Tops | Layering basics | Frugi | Classic stripes in soft brushed cotton. |
+| **The Simple Folk** | £60–£90 | Textured Jersey Tops | Minimalist layering | Gray Label | Organic cotton waffle fabrics in muted tones. |
+| **Gray Label** | £60–£90 | Brushed Sweat Tops | Cool-day comfort | The Simple Folk | Soft brushed interiors in sustainable cotton. |
+| **Petit Bateau** | £55–£85 | Long-Sleeve Tops | Everyday layering | Boden | French basics in durable interlock cotton. |
+| **Boden Mini** | £50–£80 | Printed Long-Sleeves | Playful layering | Petit Bateau | Bright yet soft transitional tops. |
+| **LIEWOOD** | £55–£80 | Thermal Cotton Tops | Modern layering | Konges Sløjd | Subtle prints in organic cotton. |
+| **Konges Sløjd** | £60–£95 | Ribbed Tops | Transitional playwear | LIEWOOD | Comfortable ribbed cotton with playful motifs. |
+| **Little Cotton Clothes** | £60–£90 | Embroidered Tops | Heritage transitional | MORI | Gently textured cotton with small floral details. |
+
+---
+
+#### 💛 Budget (under £50)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| **H&M Conscious Kids** | £15–£40 | Long-Sleeve Tops | Autumn layering | Zara Kids | Organic cotton basics for transitional wear. |
+| **Zara Kids** | £20–£40 | Textured Tops | Cool-season casual | H&M | Fashion-forward ribbed cotton designs. |
+| **M&S Kids** | £25–£45 | Long-Sleeve Tees | Versatile everyday | Next | Soft-touch jersey for autumn layering. |
+| **Next** | £20–£40 | Brushed Cotton Tops | Transitional play | M&S | Warm, durable fabrics for daily wear. |
+| **Tu at Sainsbury’s** | £12–£35 | Cotton Tops | Layering basics | George | Lightweight ribbed tops in soft cotton. |
+| **George at Asda** | £10–£30 | Long-Sleeve Cotton Tops | Everyday layering | Tu | Practical, easy-wash transitional wear. |
+| **Vertbaudet** | £25–£45 | Ribbed Long-Sleeves | Mid-season comfort | M&S | French-inspired, durable ribbed styles. |
+| **Matalan Kids** | £10–£25 | Cotton Layering Tops | Budget-friendly playwear | Tu | Easy-care ribbed or brushed cotton. |
+| **Primark Kids** | £5–£15 | Long-Sleeve Basics | Value layering | H&M | Affordable, soft cotton blends. |
+| **Nutmeg by Morrisons** | £8–£25 | Long-Sleeve Tops | Nursery layering | George | Cozy cotton tops in cheerful prints. |
+
+---
+
+### 🎨 Style Notes
+- **🍁 Fabric & Function:** Focus on brushed cottons, lightweight sweat fabrics, and ribbed jerseys for softness and transitional warmth.  
+- **🧷 Safety & Fit Considerations:** Ensure flexible cuffs, tag-free interiors, and easy pull-on designs. Avoid tight neck openings or stiff seams.  
+- **🩰 Comfort & Layering:** Ideal under gilets, cardigans, or light jackets — forms a soft, breathable base layer.  
+- **🎠 Activity Versatility:** Perfect for cool mornings, playtime layering, or quick changes in unpredictable weather.  
+- **🪡 Play-Friendly Fabrics:** Choose high-durability organic blends with smooth interiors.  
+- **🌦️ Seasonal Adaptability:** Designed for shoulder seasons — breathable enough for spring, cozy enough for autumn.
+
+---
+
+### ✨ Subcategory Summary  
+*Overview:* Transitional tops are the workhorses of a toddler’s wardrobe, balancing comfort and adaptability across multiple seasons.  
+*Seasonal Adaptation:* Excellent for layering — combines well with vests, cardigans, or light outerwear.  
+*Outfit Integration:* Works across denim, corduroy trousers, and cotton skirts for mixed-weather dressing.  
+*Final Recommendation:* Opt for soft, layered tops in breathable fabrics with neutral or nature-inspired tones for year-round flexibility.
+
+---
+
+### 💎 Client Recommendations
+- Include *4–6 transitional tops* per wardrobe cycle to ensure layering options for variable weather.  
+- *Mix one premium brand* (like *Bonpoint* or *Caramel*) with *practical mid-range options* (*Petit Bateau*, *Gray Label*).  
+- Prioritize *organic or brushed cotton fabrics* for comfort and skin sensitivity.  
+- Choose *neutral tones with a few muted prints* to ensure easy mix-and-match with outerwear and knitwear.
+  
+---
+
+### Special Edition & Seasonal Print Tops  
+
+**Purpose:**  
+Special edition and seasonal print tops celebrate changing seasons, holidays, and designer collaborations. For a 2-year-old girl, these pieces bring personality through limited-run motifs — from spring florals to winter fair-isle knits. They add emotional and aesthetic value to the wardrobe, ideal for gifting or milestone occasions while remaining soft, safe, and comfortable.
+
+---
+
+#### 👑 Premium (up to £200)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|-------|--------------|------|-----------|-------------|--------------|
+| **Bonpoint** | £120-£190 | Seasonal embroidered tops | Heritage luxury | Ralph Lauren | Hand-detailed seasonal motifs and refined materials |
+| **Caramel London** | £90-£150 | Limited-run prints | Capsule collections | Joules | Small-batch production in premium cottons |
+| **Stella McCartney Kids** | £70-£140 | Artist collaboration tops | Contemporary prints | Adidas | Eco-friendly and colourful with collectible appeal |
+| **Il Gufo** | £100-£180 | Winter knits & prints | Cold-weather wear | Ralph Lauren | Refined European aesthetic with soft wool blends |
+| **Marie-Chantal** | £90-£130 | Holiday cotton tops | Gifting | Ralph Lauren | Elegant limited-edition prints with royal undertones |
+| **Tartine et Chocolat** | £100-£180 | Dressy seasonal tops | Formal wear | Bonpoint | Subtle embroidery and soft colour stories |
+| **Trotters London** | £70-£110 | British seasonal prints | Special outings | Joules | Limited seasonal releases with charming character motifs |
+| **Olivier London** | £80-£120 | Printed smock tops | Classic seasonal wear | Joules | Organic and vintage-inspired design language |
+| **Cyrillus** | £60-£90 | Cotton tops | Transitional wear | Next | Refined seasonal themes and French chic styling |
+| **The Little White Company** | £60-£100 | Holiday tops | Gift sets | Next | Festive yet understated pieces for easy pairing |
+
+---
+
+#### 💎 Mid-Range (£50–£100)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|-------|--------------|------|-----------|-------------|--------------|
+| **Boden** | £45-£80 | Seasonal cotton tops | Everyday fun | Joules | Bright, limited prints that change each collection |
+| **Frugi** | £35-£60 | Holiday print tops | Playtime & gifting | Joules | Certified organic cottons with cheerful prints |
+| **Kite Clothing** | £30-£55 | Seasonal appliqué tops | Nature themes | Joules | British countryside inspiration and soft feel |
+| **Little Green Radicals** | £35-£65 | Organic cotton tops | Ethical gifting | Next | Bold, sustainable, fairtrade collections |
+| **Mayoral** | £40-£70 | Dressy print tops | Seasonal outfits | Next | Smart yet playful seasonal capsule releases |
+| **Pigeon Organics** | £35-£55 | Jersey tops | Transitional layering | Joules | Simple patterns, muted seasonal tones |
+| **Polarn O. Pyret** | £45-£70 | Graphic tops | Scandinavian design | Next | Durable cottons with playful, clean design |
+| **JoJo Maman Bébé** | £28-£55 | Holiday tops | Family gifting | Joules | Cute animal or festive motifs for toddlers |
+| **Name It** | £25-£50 | Print tops | Easy everyday | Next | Reliable and bright with good fabric quality |
+| **Vertbaudet** | £25-£45 | Seasonal cotton tops | Mix & match | Next | Affordable, soft and fun French style prints |
+
+---
+
+#### 💛 Budget (under £50)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|-------|--------------|------|-----------|-------------|--------------|
+| **H&M Kids** | £10-£30 | Seasonal tops | Fast access | Next | Frequent seasonal drops and cheerful graphics |
+| **M&S Kids** | £12-£35 | Holiday tops | Family gifting | Joules | Cute embroidery and consistent sizing |
+| **Next** | £10-£40 | Themed cotton tops | Everyday festive | Joules | Accessible prints that track holidays and trends |
+| **Zara Kids** | £12-£35 | Trend-led prints | Modern families | Joules | Soft jersey with expressive character graphics |
+| **Sainsbury’s Tu** | £8-£25 | Printed tops | Value gifting | Next | Seasonal ranges with animal or storybook themes |
+| **George at Asda** | £7-£20 | Holiday-themed tops | Everyday | Joules | Budget-friendly prints and bright tones |
+| **Matalan** | £6-£22 | Cotton tops | School or nursery | Next | Rotating seasonal prints and matching sets |
+| **Nutmeg (Morrisons)** | £6-£20 | Printed tops | Casual gifting | Joules | Sweet, soft and easily washable |
+| **Pep & Co** | £5-£15 | Seasonal graphic tees | Value basics | Next | Affordable and playful seasonal motifs |
+| **F&F at Tesco** | £7-£18 | Printed tops | Family matching | Next | Cute prints and regular capsule releases |
+
+---
+
+#### 🧷 Style Notes  
+
+**🎨 Seasonal Appeal**  
+- Rotate lightweight cottons for spring/summer and brushed jerseys for autumn/winter.  
+- Pair festive motifs with neutral leggings or cord skirts.  
+- Keep prints whimsical — animals, florals, and storybook characters work best for age 2.  
+
+**🎠 Activity Versatility**  
+- Designed to move easily between home, playdates, and outings.  
+- Layer under dungarees or pinafores for cooler days without adding bulk.  
+- Choose breathable natural fibres to maintain comfort during active play.  
+
+**🪡 Play-Friendly Fabrics**  
+- Prioritise soft-touch cottons and gentle elastane blends for flexibility.  
+- Avoid metallic threads or textured appliqués that could irritate skin.  
+- Opt for embroidered or screen-printed designs for better longevity after multiple washes.  
+
+**🧵 Fabric & Care**  
+- Use soft-touch cotton for comfort and ease of washing.  
+- Wash inside-out on gentle cycles to preserve print vibrancy.  
+- Avoid tumble drying for appliqué or embroidery-heavy styles.  
+
+**👗 Coordination Tips**  
+- Layer winter-themed tops under cord pinafores or velvet dungarees.  
+- Pair summer prints with cotton shorts or bloomers for a balanced look.  
+- Neutral cardigans or lightweight knits extend wearability beyond one season.  
+
+**🧷 Fit & Comfort**  
+- Prioritise stretch necklines for easy dressing.  
+- Check seam comfort on limited-edition appliqué pieces.  
+- Choose non-restrictive fits for freedom during play.
+
+---
+
+#### ✨ Subcategory Summary  
+*Overview:*  
+Whimsical, collectible pieces marking key moments and milestones.  
+*Key Strength:*  
+Expressive and memorable, perfect for gifting or family photos.  
+*Practical Note:*  
+Always prioritise comfort and durability over decorative finishes.  
+*Versatility:*  
+Can serve as both casual and event wear when paired smartly.
+
+---
+
+#### 💬 Client Recommendations  
+- Select *2–3 seasonal tops per year* to refresh the wardrobe without excess.  
+- Use *premium-tier brands* for gifting and special family occasions.  
+- Choose *mid-range or budget options* for themed playwear.  
+- Keep prints soft and age-appropriate — avoiding loud slogans or adult motifs.  
+- Store standout pieces for *memory keepsakes or sibling hand-me-downs*.
+
+---
+
+### ✨ Chapter Summary – Tops & Blouses  
+
+*Overview:*  
+This chapter refines the wardrobe foundation through a curated mix of cotton tops, versatile blouses, and playful printed pieces. Each garment is designed with softness, movement, and longevity in mind—ensuring practicality for daily wear while maintaining a polished, child-appropriate aesthetic. The emphasis remains on gentle natural fibers, thoughtful details, and tactile interest suited to a 2-year-old girl’s active yet comfort-focused needs.  
+
+*Seasonal Adaptation:*  
+Lightweight cottons, breathable jerseys, and airy poplins define the warmer months, while brushed flannels, soft rib knits, and layered blouses offer transitional warmth through autumn and spring. The category also integrates layering options—such as long-sleeve tees under dresses or vests over blouses—to extend outfit versatility year-round.  
+
+*Outfit Integration:*  
+Every piece within this category complements the wider wardrobe, coordinating seamlessly with skirts, trousers, or dungarees. A balance of solid tones, minimal prints, and textural interest supports easy mixing and layering. This ensures both everyday rotation and adaptability for slightly dressier occasions.  
+
+*Final Recommendation:*  
+Prioritize breathable, natural fabrics with soft seams and flexible fits that accommodate growth and activity. Introduce a few elevated textures or gentle ruffles to transition smoothly between casual and smart looks. Ensure tops remain easy to layer beneath knitwear and outerwear, providing year-round practicality without sacrificing style.  
+
+---
+
+### 👩‍👧 Client Recommendations  
+
+- *Core Comfort:* Maintain a base wardrobe of premium cotton and jersey tops that withstand frequent wear and washing while retaining softness.  
+- *Elevated Touches:* Add a few statement blouses or fine-textured tops with embroidery, smocking, or frill accents to lift everyday outfits.  
+- *Smart Layering:* Select slim-cut long-sleeve styles that layer neatly under dresses, dungarees, and knitwear through transitional seasons.  
+- *Fabric Priorities:* Focus on organic or OEKO-TEX® certified cottons to ensure comfort and reduce irritation for sensitive toddler skin.  
+- *Color Coordination:* Build around a soft neutral palette—ivory, blush, warm beige, and faded denim tones—with occasional seasonal accents.  
+- *Wardrobe Rotation:* Keep tops sorted by sleeve length and material weight to simplify daily outfit planning across changing weather.
+
+---
+
+# Chapter VI: 👗 Dresses & Skirts
+
+## 👗 Executive Summary — Dresses & Skirts
+
+The **Dresses & Skirts** chapter explores the balance between *comfort, practicality, and timeless charm* within a young girl’s wardrobe. These pieces form the emotional and visual core of her style — effortlessly blending playfulness with refinement. Each subcategory focuses on durability, ease of dressing, and age-appropriate elegance while ensuring every garment supports freedom of movement and imaginative expression.
+
+The chapter is divided into key subcategories:
+1. *Everyday & Casual Dresses*
+2. *Patterned, Textured & Statement Dresses*
+3. *Seasonal & Transitional Knit Dresses* 
+
+*Design Direction:*  
+Fabrics prioritise *comfort and safety*, featuring lined interiors, soft seams, and gentle closures. Prints and colours draw from *pastel tones, floral motifs, and classic checks*, allowing easy coordination with knitwear, tights, and outerwear from adjacent chapters.
+
+
+---
+
+### 👗 Everyday & Casual Dresses  
+
+**Overview:**  
+Everyday and casual dresses form the foundation of a toddler girl’s daytime wardrobe, striking a balance between comfort, durability, and charm. At age two, this category focuses on soft fabrics, simple closures, and flexible designs that support free movement while maintaining a sense of refined playfulness. These dresses should be easy to layer, mix, and coordinate with seasonal outerwear and knitwear, ensuring year-round versatility.  
+
+**Purpose:**  
+To provide a well-balanced selection of dresses suitable for daily wear, playdates, and informal family outings — pieces that merge practicality with gentle, classic style. This subcategory encourages a mix of jersey, cotton, corduroy, and soft woven fabrics, introducing light texture without compromising comfort.  
+
+**Stylist’s Insight:**  
+When curating everyday and casual pieces for a young child, focus on tactile comfort, colour harmony, and ease of wear. Choose elasticated waists, button-back closures, and breathable linings to make dressing simple and child-friendly. Balanced prints, subtle embroidery, and small-scale patterns keep outfits timeless yet expressive.  
+
+**Subcategories:**  
+1. 👕 *Play & Jersey Dresses* — soft, stretch-friendly silhouettes ideal for daily activity and nursery wear.  
+2. 🌼 *Everyday Smart Casual Dresses* — lightly structured pieces suitable for outings and casual events.  
+
+**Key Style Themes:**  
+- **Movement & Flexibility:** Prioritise cotton jersey and A-line shapes for unrestricted comfort.  
+- **Subtle Detailing:** Embroidery, scallop trims, and pintucks elevate simple forms.  
+- **Layering Potential:** Designs should complement tights, cardigans, or lightweight jackets.  
+- **Seasonal Adaptability:** Fabrics transition easily between warm and cool months.  
+
+**Colour Palette Recommendations:**  
+Soft pastels, muted florals, and gentle brights for a cheerful but cohesive mini wardrobe.  
+
+---
+## 👗 Play & Jersey Dresses
+
+### **Overview**
+Play and jersey dresses form the everyday backbone of a toddler girl's wardrobe — easy to wear, comfortable, and adaptable for home, nursery, and light outdoor play. These pieces should prioritise soft, breathable fabrics, gentle seams, and ease of movement while maintaining the cohesive aesthetic of the overall wardrobe palette.
+
+---
+
+### **Purpose**
+To provide comfortable, washable, and practical dress options that align with daily activities, ensuring easy dressing and consistent comfort without compromising on aesthetic harmony. These pieces bridge casual playtime and daywear functionality with toddler-friendly design considerations.
+
+---
+
+### **Tiered Brand Guide**
+
+### 💎 Premium (Under £200)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|:--|:--|:--|:--|:--|:--|
+| **Bonpoint** | £120–£180 | Premium | Everyday luxury | Ralph Lauren | High-quality cotton jersey with refined detailing. |
+| **Caramel London** | £100–£150 | Premium | Elevated playwear | Boden | Minimalist smocks with artisanal finishes. |
+| **La Coqueta** | £90–£150 | Premium | Spanish-inspired softness | Jacadi | Light jersey smocks with smocking and ribbon details. |
+| **Jacadi** | £80–£130 | Premium | Parisian elegance | Bonpoint | Clean lines and fine knits suitable for play and outings. |
+| **Marie-Chantal** | £100–£150 | Premium | Everyday chic | Rachel Riley | High-end cotton dresses with soft colours and angelic motifs. |
+| **Il Gufo** | £120–£180 | Premium | Soft designer casual | Bonpoint | Italian cotton jersey dresses in muted tones. |
+| **Tartine et Chocolat** | £90–£140 | Premium | Delicate daywear | Jacadi | Light embroidery and easy fastenings. |
+| **Trotters London** | £80–£130 | Premium | Traditional British charm | JoJo Maman Bébé | Easy pull-on cotton dresses with subtle detail. |
+| **Hucklebones London** | £100–£160 | Premium | Statement casual | Abel & Lula | Elegant shapes in soft stretch jersey blends. |
+| **Owa Yurika** | £90–£130 | Premium | Modern play elegance | Caramel | Contemporary prints with sustainable cotton fabrics. |
+
+---
+
+### 💛 Mid-Range (£50–£100)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|:--|:--|:--|:--|:--|:--|
+| **Boden (Mini Boden)** | £60–£90 | Mid-Range | Colourful playwear | Next | Fun prints in durable cotton jersey. |
+| **Joules** | £50–£80 | Mid-Range | Outdoor play | Boden | Bright patterns with playful appliqués. |
+| **Mayoral** | £55–£85 | Mid-Range | Soft casualwear | Next | Spanish brand with cheerful styles. |
+| **Cyrillus** | £60–£90 | Mid-Range | French everyday | La Coqueta | Cotton knits with refined details. |
+| **JoJo Maman Bébé** | £50–£75 | Mid-Range | Nursery essentials | Next | Comfortable cotton jersey dresses. |
+| **Vertbaudet** | £45–£70 | Mid-Range | Value everyday | H&M | French-designed practical casuals. |
+| **Frugi** | £55–£85 | Mid-Range | Organic cotton | Joules | Sustainable, bright and playful. |
+| **Kite Clothing** | £50–£75 | Mid-Range | Eco-conscious | Frugi | Soft GOTS-certified cottons. |
+| **Laranjinha** | £60–£90 | Mid-Range | Classic softness | Cyrillus | Light cotton knits with traditional touches. |
+| **Abel & Lula** | £60–£90 | Mid-Range | Smart-casual play | Hucklebones | Refined casualwear with bright accents. |
+
+---
+
+### 🩵 Budget (Under £50)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|:--|:--|:--|:--|:--|:--|
+| **Next** | £25–£45 | Budget | Everyday use | Joules | Bright, durable jersey dresses. |
+| **H&M** | £20–£40 | Budget | Value playwear | Zara | Soft cotton basics with prints. |
+| **M&S Kids** | £30–£45 | Budget | Comfortable classics | Next | Cotton blends for easy washing. |
+| **Zara Kids** | £25–£45 | Budget | Trend-inspired | H&M | Simple lines in soft pastel tones. |
+| **George at Asda** | £15–£30 | Budget | Affordable fun | Tu Clothing | Printed jersey with easy movement. |
+| **Sainsbury’s Tu** | £15–£35 | Budget | Practical everyday | Next | Everyday cotton with cheerful motifs. |
+| **F&F at Tesco** | £12–£30 | Budget | Accessible basics | George | Playful dresses for rotation wear. |
+| **Primark Kids** | £10–£25 | Budget | Trend-led value | H&M | Bright patterns, short wear cycle. |
+| **Pep&Co** | £10–£25 | Budget | Budget basics | George | Everyday value dresses. |
+| **Nutmeg (Morrisons)** | £10–£25 | Budget | Nursery-friendly | Tu Clothing | Soft, durable playwear options. |
+
+---
+
+### **🎀 Style Notes**
+
+- **🧶 Fabric & Comfort:** Focus on soft, breathable cotton jersey and brushed cottons. Prioritise seamless interiors and elasticated cuffs for unrestricted movement.  
+- **🎨 Colour & Pattern:** Use wardrobe base tones (e.g., blush, ivory, soft blue) with playful seasonal prints to maintain cohesion.  
+- **🧵 Durability:** Reinforced stitching and colourfast dyes ensure longevity despite frequent washing.  
+- **🪡 Fit Considerations:** Slightly relaxed silhouettes support comfort for movement and growth. Stretch ribbed cuffs prevent slipping sleeves.  
+- **🧩 Layering:** Coordinate easily with cardigans, leggings, or fine knit tights across seasons.  
+- **⚠️ Safety & Practicality:** Opt for bright or contrast accents for visibility in play areas. Avoid embellishments or loose fastenings.  
+- **🧺 Care Tip:** Machine washable on gentle cycles; quick to dry for rotation efficiency.
+
+---
+
+### **✨ Subcategory Summary**
+
+**Overview:**  
+Play and jersey dresses are everyday staples, ensuring comfort, practicality, and soft durability for active toddlers.
+
+**Seasonal Adaptation:**  
+Light cotton and sleeveless styles for spring/summer; heavier interlock jersey and long-sleeved versions for autumn/winter layering.
+
+**Outfit Integration:**  
+Pairs seamlessly with knit cardigans, ribbed tights, or cotton leggings. Serves as a go-to outfit option for daycare or casual outings.
+
+**Final Recommendation:**  
+Maintain 4–6 play dresses per season in mixed sleeve lengths to ensure comfort, wash rotation, and visual variety while aligning with the colour direction of the wardrobe.
+
+---
+
+### 👗 Everyday Smart-Casual Dresses
+
+**Overview:**  
+Everyday Smart-Casual Dresses bridge the gap between playwear and more formal pieces, offering soft structure, charming details, and versatile wearability. For a 2-year-old girl, this means breathable fabrics like cotton poplin, lightweight twill, or soft corduroy paired with subtle design flourishes — smocking, peter pan collars, ruffles, or embroidered trims — that elevate a simple silhouette into something picture-perfect yet playground-appropriate.
+
+**Purpose:**  
+To provide a refined everyday option that transitions seamlessly from home and play to social occasions. These dresses balance aesthetic appeal and comfort, allowing easy movement, fuss-free dressing, and enduring charm across seasons.
+
+---
+
+### 🩵 Premium Tier (£100–£200)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| **Bonpoint** | £120–£200 | Classic cotton/smocked | Special outings | Jacadi | Iconic French tailoring and delicate embroidery, ideal for elevated daytime looks. |
+| **La Coqueta** | £110–£180 | Smocked/structured | Family gatherings | Pepa & Co | Traditional Spanish design with timeless prints and heirloom detailing. |
+| **Caramel London** | £130–£190 | Modern vintage | Transitional wear | Patachou | Earthy tones and minimalist silhouettes ideal for chic daywear. |
+| **Trotters** | £100–£150 | Tailored cotton | Day-to-evening versatility | Rachel Riley | Polished simplicity with classic British charm. |
+| **Pepa & Co** | £120–£180 | Occasion-casual | Smart events | La Coqueta | Structured cuts with soft pastels and embroidery. |
+| **Il Gufo** | £150–£200 | Linen blends | Warm weather | Bonpoint | Elegant Italian construction perfect for refined comfort. |
+| **Hucklebones London** | £120–£180 | Structured satin-cotton | Family photos/events | Caramel | Luxurious feel with sweet design details. |
+| **Tartine et Chocolat** | £130–£200 | Lightweight cotton voile | Summer wear | Bonpoint | Subtle floral tones and fine craftsmanship. |
+| **Rachel Riley** | £120–£160 | Classic cotton poplin | Traditional look | Trotters | British heritage designs with full skirts and soft linings. |
+| **Patachou** | £110–£160 | Polished casual | Smart daytime | Il Gufo | Understated European aesthetic with gentle structure. |
+| **Arket Kids** | £50–£100 | Minimal Cotton, Utility Dresses | Scandinavian simplicity | Next | Simple cuts, durable organic cottons, neutral tones. |
+| **Bonheur du Jour** | £80–£120 | Light Cotton Prints | Soft bohemian appeal | Joules | Gentle floral and embroidered details for relaxed elegance. |
+| **Jacadi Paris** | £80–£140 | Cotton & Linen Mix | Everyday refinement | Ralph Lauren | Modern French classic pieces with comfort. |
+| **Paz Rodríguez** | £75–£130 | Knitted Cotton Blends | Fine detailing, seasonal transitions | Joules | Spanish brand known for delicate craftsmanship and soft palettes. |
+
+---
+
+### 💕 Mid-Range (£50–£100)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| **Petit Bateau** | £60–£85 | Cotton jersey | Everyday wear | Boden | Easy-care cotton and soft structure for active toddlers. |
+| **Boden Mini** | £55–£80 | Corduroy/twill | Seasonal wear | JoJo Maman Bébé | Playful prints with subtle refinement for all-day comfort. |
+| **MORI** | £55–£75 | Organic cotton | Gentle comfort | Frugi | Soft jersey options perfect for sensitive skin. |
+| **JoJo Maman Bébé** | £50–£75 | Printed cotton | Transitional wear | Next | Everyday charm with functional, washable fabrics. |
+| **Seraphine Mini** | £60–£90 | Smart-casual cotton | Outings | MORI | Elegant details with casual silhouettes. |
+| **Blue Almonds** | £70–£95 | European cotton | Semi-formal | La Coqueta | Boutique-level detail with delicate trims. |
+| **Olivier Baby** | £60–£90 | Knitted/cotton blends | Layered looks | MORI | Hand-finished knit-trimmed dresses with vintage appeal. |
+| **Frugi** | £50–£70 | Printed organic | Play to day | MORI | Bright, cheerful patterns in sustainable cotton. |
+| **Laranjinha** | £60–£85 | Structured cotton | Transitional wear | Petit Bateau | European tailoring with soft-touch fabrics. |
+| **The Little Tailor** | £55–£80 | Fine cotton | Everyday chic | Patachou | Elevated simplicity ideal for versatile dressing. |
+| **Polarn O. Pyret** | £60–£85 | Organic Cotton | Scandinavian simplicity | Adidas | Durable, comfortable, unrestrictive designs. |
+| **Little Cotton Clothes** | £55–£75 | Organic Cotton | Classic British heritage | Joules | Simple nostalgic pieces in seasonal tones. |
+| **Frugi** | £50–£70 | Organic Cotton | Nursery-friendly | Joules | Bright, durable, ethical playwear with feminine prints. |
+| **Cyrillus** | £60–£90 | Soft Cotton | Continental chic | Ralph Lauren | Effortless and polished with soft palettes. |
+| **Vertbaudet** | £40–£70 | Cotton Blends | Day-to-day wear | Next | Reliable basics in gentle pastel shades. |
+| **Mamas & Papas** | £50–£85 | Cotton & Linen Blends | Family outings | Next | Comfortable fabrics with classic design elements. |
+| **FatFace Mini** | £50–£70 | Cotton Denim | Practical smart-casual | Joules | Soft denim and corduroy styles with fun details. |
+
+---
+
+### 🌼 Budget (£25–£50)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| **Next** | £25–£40 | Jersey/cotton | Everyday play | Boden | Affordable, stylish staples with soft fabrications. |
+| **H&M Conscious** | £25–£35 | Organic cotton | Casual wear | Zara Kids | Eco-friendly basics with refined tones. |
+| **Zara Kids** | £30–£45 | Cotton poplin | Transitional | Mango Kids | Playful structure and elevated design aesthetic. |
+| **M&S Autograph** | £30–£45 | Smart-casual | Social outings | Next | Good-quality cotton blends at accessible prices. |
+| **Vertbaudet** | £25–£40 | Printed cotton | Everyday rotation | H&M | Durable and washable with sweet detailing. |
+| **George Premium (Asda)** | £25–£35 | Cotton twill | Nursery wear | Tu at Sainsbury’s | Great value for quality and washability. |
+| **Tu at Sainsbury’s** | £25–£35 | Jersey dresses | Daily use | George | Bright, wearable options for play and casual events. |
+| **Mango Kids** | £30–£45 | Cotton-blend | Casual chic | Zara Kids | Trend-led styles in soft pastel tones. |
+| **F&F Clothing (Tesco)** | £25–£35 | Printed cotton | Value smart-casual | Vertbaudet | Practical, everyday-friendly pieces. |
+| **Nutmeg by Morrisons** | £25–£30 | Cotton jersey | Nursery/Daywear | Tu | Soft and durable dresses with seasonal prints. |
+| **Hema** | £12–£30 | Organic Cotton | Minimal essentials | Next | European brand known for soft fabrics and basics. |
+
+---
+
+### 👗 Style Notes
+
+**🌤 Layering & Practical Styling**  
+Pair with fine cardigans, tights, or leggings during cooler months. Opt for collars that sit comfortably under knitwear and soft linings for all-day wear.  
+
+**🧺 Care & Fabric Guidance**  
+Prioritise 100% cotton or organic blends for breathability and comfort. Smocked pieces may need gentle handwashing to preserve shape.  
+
+**🎨 Outfit Coordination Tips**  
+Coordinate pastel or muted tones with simple leather shoes or Mary Janes. Avoid overly busy prints to maintain versatility.  
+
+**🪡 Play-Friendly Fabrics**  
+Choose structured yet flexible cottons — poplin, seersucker, or twill — that retain shape while allowing free movement.  
+
+**🧷 Safety & Fit Considerations**  
+Ensure any button or embellishment detailing is securely stitched and avoid pieces with detachable trims.  
+
+**🎠 Activity Versatility**  
+Comfortable enough for light play and suitable for nursery events or casual outings — ideal for balancing elegance with practicality.  
+
+---
+
+### ✨ Subcategory Summary
+
+**Overview:**  
+Smart-casual dresses offer the ideal middle ground between formality and fun, providing sophistication without compromising comfort.  
+
+**Seasonal Adaptation:**  
+Layer with knitwear or tights in cooler months, or wear alone in summer with sandals or canvas shoes.  
+
+**Outfit Integration:**  
+Pairs seamlessly with classic cardigans, fine knitwear, or lightweight outerwear.  
+
+**Final Recommendation:**  
+Build a rotation of 3–5 dresses across these tiers for diverse styling — one elevated, one structured, and one play-refined for everyday versatility.
+
+---
+## 👗 Patterned & Statement Dresses
+
+### Overview
+A celebration of colour, texture, and playful creativity — this subcategory brings expressive prints, tactile fabrics, and signature details to the toddler wardrobe. For a 2-year-old girl, statement pieces should remain soft, breathable, and lined where necessary to ensure comfort during play or events. This section balances design impact with practicality, allowing pieces to move seamlessly from parties to outings.
+
+---
+
+### Everyday Printed Cotton & Poplin Dresses
+Classic florals, gingham, and soft cotton prints ideal for daily wear. Easy-care fabrics and playful motifs keep the look cheerful yet child-appropriate.
+
+—
+
+### 💎 Premium (Under £200)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| Ralph Lauren Kids | £90–£180 | Printed poplin, embroidered | Heritage florals, formal parties | Ralph Lauren | Iconic classic patterns with refined detailing and structure. |
+| Bonpoint | £150–£200 | Cotton & silk prints | Luxury heirloom styles | Joules | Parisian chic with timeless micro-florals and hand-smocking. |
+| Marie-Chantal | £120–£180 | Organza, silk, cotton voile | Occasions and portraits | Ralph Lauren | Elegant silhouettes with whimsical touches and comfort lining. |
+| Stella McCartney Kids | £95–£180 | Printed cotton, organic blends | Playful ethical luxury | Next | Vibrant eco-friendly prints and quirky detailing. |
+| Il Gufo | £110–£190 | Tulle & embroidered | Special occasions | Ralph Lauren | Italian craftsmanship with soft pastels and delicate embroidery. |
+| Tartine et Chocolat | £130–£180 | Jacquard, tulle, voile | Sophisticated special wear | Joules | Refined and graceful designs in soft palettes. |
+| Chloe Kids | £120–£190 | Embroidered cotton | Modern luxury casual | Ralph Lauren | French bohemian feel with delicate structure. |
+| Hucklebones London | £100–£160 | Silk mix, brocade | Statement pieces | Joules | Known for elegant silhouettes and architectural bows. |
+| Rachel Riley | £95–£150 | Printed cotton | Classic English charm | Joules | Traditional cuts, often with ditsy floral and smocking detail. |
+| The Little Tailor | £85–£120 | Cotton knit & poplin | Refined daywear | Next | Understated luxury with soft, heritage tones. |
+
+---
+
+### 💫 Mid-Range (£50–£100)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| Joules | £40–£70 | Cotton prints | Playful everyday prints | Joules | Signature bold florals, stripes, and cheerful motifs. |
+| Frugi | £45–£70 | Organic cotton jersey | Everyday eco prints | Next | Soft organic jersey with playful sustainable designs. |
+| Kite Clothing | £45–£70 | Cotton & poplin | Printed casualwear | Joules | Dorset-based sustainable brand with coastal charm. |
+| Little Cotton Clothes | £60–£90 | Smocked cotton | Everyday smock & playwear | Joules | Vintage-inspired British label with heirloom touches. |
+| The Bonnie Mob | £55–£90 | Knitted cotton | Modern playful prints | Saltrock | Whimsical graphics and cheerful modern knit designs. |
+| Mini Boden | £50–£85 | Cotton poplin, cord | Printed daywear | Next | Known for bright British prints and family-friendly design. |
+| Trotters | £60–£95 | Cotton & cord | Smart daywear | Ralph Lauren | Tailored English classics with subtle statement details. |
+| Patachou | £70–£95 | Tulle & embroidered cotton | Occasions | Ralph Lauren | Portuguese brand blending smart elegance with comfort. |
+| Molo | £60–£95 | Printed organic cotton | Modern graphic looks | Next | Scandi style with digital prints and soft shapes. |
+| Mayoral | £50–£80 | Printed & textured cotton | Smart casual | Next | Reliable Spanish brand mixing prints with comfort. |
+
+---
+
+### 🌼 Budget (Under £50)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| Next | £20–£45 | Cotton & jersey prints | Everyday wear | Next | Trend-led, easy-wash printed dresses. |
+| H&M Conscious | £15–£35 | Organic cotton | Everyday eco options | Next | Sustainable basics with cute graphic motifs. |
+| M&S Autograph Kids | £25–£45 | Cotton & viscose blends | Smart casual | Joules | High-street dependable quality with classic patterns. |
+| Zara Kids | £20–£45 | Printed cotton | Modern minimal prints | Next | Affordable fashion-forward styles with soft fabrics. |
+| Sainsbury’s Tu | £15–£30 | Jersey & cotton prints | Everyday rotation | Next | Practical and comfortable for nursery and play. |
+| George at ASDA | £12–£25 | Cotton blends | Casual and value wear | Next | Fun, durable styles ideal for daily use. |
+| FatFace Mini | £30–£45 | Cotton prints | Playful casualwear | Joules | Coastal prints and comfortable relaxed fits. |
+| Morrisons Nutmeg | £10–£20 | Cotton & jersey | Everyday affordable | Next | Simple designs with comfort and easy-care focus. |
+| Vertbaudet | £25–£45 | Printed organic cotton | European-style prints | Joules | French brand known for bright, coordinated looks. |
+| Matalan | £10–£25 | Cotton blends | Budget-friendly variety | Next | Accessible prints and cheerful design for toddlers. |
+
+---
+
+#### Stylist Notes  
+
+**🌤 Layering & Practical Styling**  
+Light cotton poplin and fine woven prints are ideal for layering with soft cardigans or knit vests in cooler months. Choose knee-length or slightly above for balance when pairing with tights or leggings. Add a lightweight denim or cord jacket for transitional weather.  
+
+**🧺 Care & Fabric Guidance**  
+Opt for 100% cotton or cotton-linen blends for breathability. Machine wash at 30°C with mild detergent to maintain colour vibrancy. Avoid tumble drying to preserve the crisp texture of poplin.  
+
+**🎨 Outfit Coordination Tips**  
+Coordinate printed cottons with solid-colour knitwear or subtle patterned tights. Choose complementary accessories such as canvas sneakers or soft leather shoes to keep the look relaxed yet refined.  
+
+**🧷 Safety & Fit Considerations**  
+Avoid small detachable embellishments on younger children’s dresses. Ensure button fastenings are secure and fabric seams are smooth against the skin.  
+
+**🎠 Activity Versatility**  
+Perfect for everyday play, nursery, or family outings. Lightweight enough for movement while maintaining structure for a polished daytime look.  
+
+**🪡 Play-Friendly Fabrics**  
+Soft poplin and brushed cotton resist wear and allow airflow. Fabrics should be lined or French-seamed to prevent irritation for toddlers’ sensitive skin.  
+
+---
+
+### ✨ Subcategory Summary  
+
+**Overview:**  
+Everyday printed cotton and poplin dresses offer timeless charm and easy care — the foundation of a 2-year-old’s daily wardrobe.  
+
+**Seasonal Adaptation:**  
+Ideal for spring through autumn layering, transitioning easily with cardigans, tights, or lightweight outerwear.  
+
+**Outfit Integration:**  
+Complements casual shoes and knitwear, providing multiple styling combinations without compromising comfort.  
+
+**Final Recommendation:**  
+Maintain a balanced rotation of 4–6 dresses across soft prints and ginghams. Prioritise comfort, breathable linings, and durable cotton blends.  
+
+---
+
+### 👩‍👧 Client Recommendations  
+
+- Focus on brands like *Joules*, *Next*, and *Ralph Lauren* for familiar quality and playful yet classic aesthetics.  
+- Introduce *Caramel London* or *La Coqueta* for elevated options while keeping comfort and practicality.  
+- Choose *layerable styles* with simple silhouettes to ensure versatility across seasons.  
+- Rotate seasonal colours to keep the wardrobe fresh but cohesive in tone.
+
+—
+
+### 2. Textured & Embellished Dresses (Embroidered, Appliqué, Smocked)
+Adds depth and charm through tactile surfaces and delicate details, ensuring textures are child-safe and comfortable against the skin.
+
+—
+
+### 💎 Premium (Under £200)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| Bonpoint | £150–£200 | Embroidered cotton, smocked voile | Heirloom-quality detailing | Joules | Hand-finished embroidery with vintage refinement. |
+| Rachel Riley | £100–£160 | Smocked poplin, embroidery | Traditional British charm | Joules | Classic heritage style with soft lining and structure. |
+| Il Gufo | £120–£190 | Embroidered tulle, voile | Formal yet soft embellishment | Ralph Lauren | Italian-made, tactile but light designs. |
+| Marie-Chantal | £110–£180 | Appliqué & delicate embroidery | Occasions, portraits | Ralph Lauren | Soft pastel tones and premium finishing. |
+| Hucklebones London | £100–£170 | Silk mix, brocade | Statement structured designs | Joules | Architectural bows and modern luxury craft. |
+| Tartine et Chocolat | £130–£190 | Jacquard, embroidered cotton | Refined specialwear | Joules | French brand known for timeless refinement. |
+| Chloe Kids | £120–£190 | Appliqué & lace detail | Soft, feminine silhouettes | Ralph Lauren | French boho with modern flair. |
+| Patachou | £95–£160 | Tulle & embroidered cotton | Elegant formal looks | Ralph Lauren | Portuguese craftsmanship with soft comfort. |
+| Caramel London | £100–£150 | Smocked cotton & crepe | Everyday luxe | Joules | Understated, vintage-style embroidery. |
+| The Little Tailor | £85–£120 | Knit & cotton detailing | Transitional daywear | Next | Subtle texture, soft tones, and structured softness. |
+
+---
+
+### 💫 Mid-Range (£50–£100)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| Little Cotton Clothes | £60–£90 | Smocked cotton | Vintage playwear | Joules | English artisanal smocking, perfect for toddler age. |
+| Trotters | £60–£95 | Cotton & embroidery | Smart daywear | Ralph Lauren | Tailored simplicity with classic touches. |
+| Mini Boden | £50–£85 | Appliqué cotton | Everyday statement | Joules | Bright, soft cotton dresses with cheerful appliqué. |
+| Frugi | £45–£70 | Embroidered jersey | Eco casualwear | Next | Organic base fabrics with small embellishment detail. |
+| Kite Clothing | £45–£70 | Cotton & embroidery | Everyday smart playwear | Joules | Soft cotton pieces with embroidered motifs. |
+| The Bonnie Mob | £55–£90 | Knitted cotton | Modern embroidery | Saltrock | Colourful graphic detailing and soft knit structure. |
+| Mayoral | £50–£80 | Textured cotton & tulle | Smart casual | Next | Spanish tailoring with texture and comfort. |
+| Petit Bateau | £55–£90 | Cotton jersey & embroidery | Transitional wear | Next | Subtle patterning and small embroidered logos. |
+| JoJo Maman Bébé | £40–£70 | Appliqué jersey | Daywear | Joules | Fun appliqué motifs designed for toddlers. |
+| Molo | £60–£95 | Digital printed embroidery | Modern graphics | Next | Scandi minimalism with creative textures. |
+
+---
+
+### 🌼 Budget (Under £50)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| Next | £20–£45 | Appliqué & embroidered cotton | Everyday wear | Next | Consistent quality with varied appliqué options. |
+| M&S Autograph Kids | £25–£45 | Textured & embroidered | Smart casual | Joules | Subtle embroidery on comfortable cotton bases. |
+| H&M Conscious | £15–£35 | Organic embroidered cotton | Sustainable basics | Next | Simple and playful embroidered detail. |
+| Zara Kids | £20–£45 | Textured cotton | Modern embellishment | Next | Fashion-led minimal embroidery. |
+| FatFace Mini | £30–£45 | Cotton & embroidery | Playful outdoor style | Joules | Coastal, tactile fabrics with cheerful detailing. |
+| Sainsbury’s Tu | £15–£30 | Cotton jersey | Everyday appliqué | Next | Cute, durable designs for toddlers. |
+| George at ASDA | £12–£25 | Cotton blend | Daily casual | Next | Soft jersey pieces with safe stitched detailing. |
+| Vertbaudet | £25–£45 | Organic cotton | French prints with embroidery | Joules | European charm with easy-wear comfort. |
+| Matalan | £10–£25 | Cotton blends | Budget-friendly | Next | Decorative embroidery at an accessible price. |
+| Nutmeg at Morrisons | £10–£20 | Cotton & appliqué | Nursery daywear | Next | Playful yet practical for everyday use. |
+
+---
+#### Stylist Notes  
+
+**🌤 Layering & Practical Styling**  
+Smocked and embroidered dresses pair beautifully with fine-gauge knit cardigans or cropped denim jackets. For cooler days, layer over ribbed cotton tops and add textured tights or knee socks for warmth.  
+
+**🧺 Care & Fabric Guidance**  
+Choose garments with embroidery backed by soft linings to avoid skin irritation. Hand wash or use a delicate machine cycle to preserve threadwork and appliqué integrity. Lay flat to dry to maintain shape and detailing.  
+
+**🎨 Outfit Coordination Tips**  
+Balance ornate textures with plain outer layers — a neutral cardigan or simple coat keeps focus on the craftsmanship. Pair with Mary Janes or ballet flats for formal wear, or soft leather sandals for casual occasions.  
+
+**🧷 Safety & Fit Considerations**  
+Avoid heavy embellishments or sequins for younger children. Opt for securely stitched detailing and soft elastic waistlines. Ensure smocking is flexible and allows full arm movement.  
+
+**🎠 Activity Versatility**  
+Suited for events, outings, or slightly dressier everyday occasions. Still comfortable for movement if using cotton or linen bases.  
+
+**🪡 Play-Friendly Fabrics**  
+Soft, lined cottons, linens, and lightweight blends with hand-finished detail are ideal. Look for pre-washed or enzyme-treated textiles to ensure comfort against sensitive skin.  
+
+---
+
+### ✨ Subcategory Summary  
+
+**Overview:**  
+Textured and embellished dresses elevate the everyday wardrobe with artisanal charm — bridging comfort and sophistication through tactile details.  
+
+**Seasonal Adaptation:**  
+Perfect for spring and autumn when layering highlights embroidery and texture. Linen and smocked styles remain breathable in warmer months.  
+
+**Outfit Integration:**  
+Complements classic cardigans, patent or soft leather shoes, and simple accessories that let the textures shine.  
+
+**Final Recommendation:**  
+Keep 2–3 key pieces for special use — balancing detail with wearability. Prioritise lined smocking and minimal appliqué for a polished, child-safe look.  
+
+---
+
+### 👩‍👧 Client Recommendations  
+
+- Explore **La Coqueta**, **Mayoral**, and **Ralph Lauren** for accessible, heritage-inspired smocking.  
+- Add **Bonpoint** or **Caramel London** for refined embroidery options within the £200 cap.  
+- Mix in **Next** or **Joules** for everyday textured cotton dresses that complement more premium items.  
+- Ensure textures are soft to touch — no rough threads or scratchy embellishment edges.
+
+---
+
+### 3. Occasion & Playful Party Dresses (Tulle, Organza, Layered Prints)
+Soft-lined tulle and layered fabrics for special moments. Comfort linings and simple fastenings ensure ease of wear and freedom to move.
+
+---
+
+### 💎 Premium (Under £200)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| Hucklebones London | £120–£190 | Satin, tulle, brocade | Statement occasionwear | Ralph Lauren | Elegant silhouettes with signature bows. |
+| Marie-Chantal | £110–£180 | Silk & organza | Formal events, photos | Ralph Lauren | Luxe materials with refined embellishment. |
+| Bonpoint | £140–£200 | Layered voile, embroidery | Special occasions | Joules | Timeless French craftsmanship with delicate detail. |
+| Il Gufo | £120–£190 | Layered cotton & tulle | Premium formalwear | Ralph Lauren | Lightweight layers with movement and elegance. |
+| Tartine et Chocolat | £130–£195 | Organza & tulle | Traditional celebration wear | Joules | Romantic, polished silhouettes with soft lining. |
+| Caramel London | £100–£150 | Textured silk cotton | Day-to-evening wear | Joules | Vintage-inspired tones with artisanal structure. |
+| Patachou | £95–£160 | Satin & embroidered tulle | Birthday parties | Next | Modern European design with soft detailing. |
+| Stella McCartney Kids | £100–£160 | Recycled tulle & prints | Playful luxury | Joules | Colourful, conscious designs with movement. |
+| Chloé Kids | £120–£190 | Layered organza & lace | Modern boho occasionwear | Ralph Lauren | Whimsical luxury with natural tones. |
+| Self-Portrait Mini | £130–£200 | Lace & crepe | Photographic moments | Ralph Lauren | Refined, miniature couture inspired by adult line. |
+
+---
+
+### 💫 Mid-Range (£50–£100)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| Monsoon | £60–£95 | Tulle, satin | Partywear | Joules | Rich detailing with comfortable linings. |
+| Trotters | £60–£95 | Smocked silk & cotton | Family occasions | Ralph Lauren | British timelessness with refined design. |
+| Boden | £55–£90 | Tulle & cotton blends | Parties | Joules | Playful yet soft — practical occasion looks. |
+| Mayoral | £55–£90 | Organza & textured cotton | Day-to-special events | Next | Classic shapes with Spanish flair. |
+| Angel & Rocket | £50–£90 | Tulle & satin | Fun, modern partywear | Joules | Bright colours with playful construction. |
+| Billieblush | £60–£100 | Tulle, sequins | Playful sparkle | Joules | Bold colours and glitter, still soft for kids. |
+| Abel & Lula | £70–£95 | Satin, jacquard | Dressy occasions | Ralph Lauren | Refined formalwear for toddlers. |
+| RaspberryPlum | £60–£95 | Layered cotton | Creative prints | Joules | Artistic and expressive with comfort focus. |
+| The Middle Daughter | £70–£100 | Silk & cotton | Quirky yet elegant | Ralph Lauren | Modern British tailoring for special events. |
+| Angel Dear (UK) | £50–£85 | Cotton & tulle | First birthdays | Next | Soft pastel colours and tulle overlays. |
+
+---
+
+### 🌼 Budget (Under £50)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| Next | £20–£45 | Tulle & cotton | Everyday parties | Next | Reliable quality and vibrant colour options. |
+| M&S | £25–£45 | Organza & satin | Seasonal parties | Joules | Comfy linings with subtle sparkle. |
+| H&M Kids | £15–£40 | Tulle & printed cotton | Casual partywear | Next | Soft fabrics with easy fastening. |
+| Zara Kids | £25–£45 | Layered tulle & sequins | Modern playful looks | Next | Trend-led, comfortable fits for toddlers. |
+| Monsoon Little | £30–£50 | Tulle & satin | Budget party edit | Joules | Scaled-down versions of Monsoon partywear. |
+| George at ASDA | £15–£30 | Tulle & glitter jersey | Dress-up days | Next | Fun sparkle at affordable prices. |
+| Tu at Sainsbury’s | £15–£30 | Cotton & tulle | Nursery celebrations | Next | Cute styles with soft inner lining. |
+| Vertbaudet | £25–£45 | Printed cotton | French style parties | Joules | Delicate designs with comfort focus. |
+| Matalan | £12–£30 | Organza & satin | Everyday special occasions | Next | Practical and polished budget option. |
+| F&F at Tesco | £12–£25 | Tulle & satin | Everyday wear | Next | Simple silhouettes, colourful layers. |
+
+---
+#### Stylist Notes  
+
+**🌤 Layering & Practical Styling**  
+Opt for soft tulle overlays with cotton linings, pairing easily with cropped cardigans or boleros. For cooler months, layer with fine-knit tights and soft ballet flats. A lightweight coat in wool or corduroy adds warmth without bulk.  
+
+**🧺 Care & Fabric Guidance**  
+Tulle and organza require delicate care — hand wash or use a protective garment bag on a gentle cycle. Air dry to prevent creasing and distortion. Avoid starch or heat pressing; instead, use light steam to refresh layers.  
+
+**🎨 Outfit Coordination Tips**  
+Keep accessories minimal — headbands or hair bows in complementary shades. Metallic or pastel shoes work well without overwhelming the look. Stick to two-tone palettes for sophistication while maintaining playful charm.  
+
+**🧷 Safety & Fit Considerations**  
+Prioritise dresses with soft linings and covered seams to prevent irritation. Ensure no detachable beads or sequins. Check waistbands and shoulder straps for gentle elastic or adjustable closures for comfort.  
+
+**🎠 Activity Versatility**  
+While designed for special occasions, these dresses should still allow free movement for dancing, play, and comfort during events. Select lighter layers that don’t restrict sitting or crawling.  
+
+**🪡 Play-Friendly Fabrics**  
+Seek out layered cotton tulles or fine mesh with built-in cotton slips. Avoid stiff polyester organza when possible; softer blends offer comfort without sacrificing structure.  
+
+---
+
+### ✨ Subcategory Summary  
+
+**Overview:**  
+Occasion and playful party dresses bring celebration-ready elegance while keeping comfort and mobility top of mind — ideal for birthdays, family gatherings, or seasonal events.  
+
+**Seasonal Adaptation:**  
+Spring and winter both benefit from these pieces — lighter tulles for warmer months, velvety layers and lined organza for colder occasions.  
+
+**Outfit Integration:**  
+Complements soft formal shoes, ribbon accessories, and structured outerwear. Layering with neutral knitwear transforms these pieces into semi-casual ensembles.  
+
+**Final Recommendation:**  
+Maintain 2–3 special dresses — one signature “party” style, one seasonal tulle piece, and one versatile cotton-lace option. Comfort lining and adjustable features are non-negotiable for this age.  
+
+---
+
+### 👩‍👧 Client Recommendations  
+
+- **Mayoral**, **Patachou**, and **Monsoon Children** offer beautiful, soft-lined tulle options under £100.  
+- For elevated yet child-comfort-conscious pieces, try **Bonpoint**, **Caramel London**, or **Trotters** (all under £200).  
+- **Next**, **Joules**, and **Zara Kids** provide easy-care, machine-washable options for lower budgets.  
+- Choose pastel palettes or whimsical prints that remain age-appropriate and photograph well.
+
+---
+
+### 4. Seasonal & Limited-Edition Prints
+Highlighting capsule releases or designer collaborations that align with seasonal themes — ideal for gifting or wardrobe refreshes.
+
+---
+
+### 💎 Premium (Under £200)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| Bonpoint | £130–£190 | Limited floral & holiday prints | Capsule collections | Ralph Lauren | Seasonal patterns with timeless French craftsmanship. |
+| Stella McCartney Kids | £100–£160 | Artist & eco collabs | Statement casual | Joules | Vibrant, sustainable prints with whimsical flair. |
+| Bonton | £120–£180 | Exclusive print runs | Everyday luxury | Joules | Bohemian florals and soft cottons with Parisian charm. |
+| Il Gufo | £120–£180 | Capsule cotton & linen prints | Smart casual | Ralph Lauren | Refined motifs in breathable materials. |
+| Caramel London | £110–£160 | Heritage reissue prints | Transitional wear | Joules | Archival-inspired textiles and vintage palettes. |
+| La Coqueta | £100–£150 | Seasonal pattern collections | Smart events | Joules | Traditional elegance with limited-run embroidery. |
+| Patachou | £95–£150 | Themed capsule drops | Occasionwear | Ralph Lauren | Modern European collections with soft tailoring. |
+| Velveteen | £90–£150 | Art-inspired prints | Statement everyday | Joules | Ethically made with painterly design motifs. |
+| MarMar Copenhagen | £90–£140 | Nordic seasonal prints | Transitional wear | Next | Muted patterns blending comfort and refinement. |
+| Mini Rodini | £90–£130 | Illustrated artist prints | Playful capsules | Joules | Bold, eco-conscious designs with creative graphics. |
+
+---
+
+### 💫 Mid-Range (£50–£100)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| Boden | £55–£95 | Limited seasonal prints | Family photos | Joules | Colourful, story-led capsule prints. |
+| Trotters | £60–£95 | Heritage seasonal drops | Smart casual | Ralph Lauren | British classics with fresh print variations. |
+| Monsoon | £55–£90 | Holiday & event prints | Parties | Joules | Richly patterned with practical linings. |
+| Little Cotton Clothes | £55–£85 | Small-batch handmade prints | Everyday | Joules | Vintage feel with artisanal simplicity. |
+| Frugi | £55–£80 | Organic cotton seasonal prints | Everyday play | Next | Bright, sustainable designs for comfort. |
+| Tobias & The Bear | £55–£85 | Graphic print capsules | Trend-led wear | Next | Unisex patterns in soft jersey cotton. |
+| The Middle Daughter | £70–£100 | Limited abstract prints | Smart playwear | Ralph Lauren | Creative British prints with texture contrast. |
+| Mabli | £60–£95 | Hand-drawn seasonal prints | Transitional | Joules | Natural materials with delicate motifs. |
+| Little Green Radicals | £55–£85 | Organic print capsules | Playwear | Next | Ethical UK-made pieces in limited runs. |
+| LIEWOOD | £60–£90 | Scandinavian capsule drops | Everyday layering | Joules | Subtle prints and modern neutrals. |
+
+---
+
+### 🌼 Budget (Under £50)
+
+| Brand | Price Range | Type | Best For | Similar To | Description |
+|--------|--------------|------|-----------|-------------|--------------|
+| H&M Conscious | £20–£45 | Artist collabs | Playwear | Next | Affordable limited prints in organic cotton. |
+| Zara Kids | £25–£45 | Capsule collections | Seasonal refresh | Next | Trend-forward prints with modern styling. |
+| Next | £20–£40 | Themed seasonal drops | Nursery to family wear | Next | Regular limited-run patterns with easy care. |
+| M&S | £25–£45 | Holiday & floral prints | Everyday wear | Joules | Gentle prints and soft linings for comfort. |
+| Vertbaudet | £25–£45 | Limited seasonal editions | Playwear | Joules | French-inspired prints in soft cotton. |
+| George at ASDA | £15–£35 | Character collabs | Playwear | Next | Affordable fun prints for toddlers. |
+| Tu at Sainsbury’s | £15–£35 | Seasonal print capsules | Nursery wear | Next | Playful motifs in easy-wash cottons. |
+| Nutmeg at Morrisons | £12–£30 | Print-based capsule sets | Everyday wear | Next | Coordinated sets in limited themes. |
+| Matalan | £15–£35 | Mini print collections | Family photos | Next | Cute and accessible limited-edition looks. |
+| F&F at Tesco | £12–£30 | Holiday print edits | Everyday | Next | Practical and lively limited-run options. |
+
+---
+
+### ✨ Subcategory Summary  
+Seasonal & Limited-Edition Prints offer a joyful refresh to a little girl’s wardrobe — blending collectible charm with practicality. These pieces are ideal for marking milestones, holidays, or family occasions, often featuring limited-run motifs and special collaborations that bring playful individuality.  
+While premium lines deliver refined craftsmanship and heirloom appeal, mid-range and budget options allow parents to introduce variety without overinvesting in short-wear-cycle items.  
+Across all tiers, breathable cottons and soft linings ensure comfort, and elasticated or smocked details maintain an easy fit for growing toddlers.  
+
+---
+
+### 💡 Client Recommendations  
+- **Balance Collectability & Comfort:** Prioritise limited pieces that use soft cotton or cotton-blend bases to maintain wearability and avoid stiffness.  
+- **Opt for Multi-Season Prints:** Choose transitional florals, muted brights, or heritage motifs that remain relevant beyond a single season.  
+- **Size Up for Longevity:** Since capsule releases may sell out, consider one size larger — especially for smocked or tiered dresses that still fit well slightly oversized.  
+- **Photo-Ready Detailing:** Seasonal prints photograph beautifully for milestones and family events — pair with neutral cardigans or tights to create repeat looks.  
+- **Storage & Keepsake Potential:** Preserve select limited editions as memory pieces; premium lines like Bonpoint or Caramel London retain sentimental and resale value.
+
+---
+
+### Stylist Notes
+**🌤 Layering & Practical Styling**  
+Pair bold prints with plain cardigans or neutral tights to balance colour and texture. Layer under cotton knits for transitional weather.
+
+**🧺 Care & Fabric Guidance**  
+Opt for machine-washable prints where possible. Turn garments inside out before washing to preserve vibrancy.
+
+**🎨 Outfit Coordination Tips**  
+Mix patterns carefully — small florals or stripes pair best with solid accessories. Keep footwear neutral to ground statement prints.
+
+**🧷 Safety & Fit Consideration**  
+Check that embellishments are securely attached. Avoid any sequins or beads that may detach during play.
+
+**🪡 Play-Friendly Fabrics**  
+Choose soft poplins and lined tulles to ensure comfort. Prioritise breathable cottons or jersey-backed embroidery for freedom of movement.
+
+---
+
+### 🌈 Subcategory Summary
+
+**Overview:**  
+Patterned and statement dresses bring character and individuality to a young child’s wardrobe. These pieces balance playful prints, colour blocking, and bold motifs with soft, breathable fabrics suitable for daily wear or standout occasions.  
+
+**Design Direction:**  
+Fabrics such as cotton poplin, linen blends, and soft jerseys are preferred, ensuring durability and comfort while supporting vivid prints. Striped, polka-dot, animal, and illustrative patterns add personality, while structured silhouettes or tiered designs elevate the visual interest.  
+
+**Seasonal Adaptation:**  
+Layer lighter patterned dresses with long-sleeved tees or cardigans during cooler months to extend wearability. In warmer weather, sleeveless or short-sleeve shapes in cotton or linen keep the look fresh and easy.  
+
+**Styling Notes:**  
+These dresses pair beautifully with simple layering pieces — denim jackets, solid-colour knit cardigans, or leggings — allowing the prints to remain the focal point. Accessories such as hairbands or sandals in complementary tones complete the look without overpowering the pattern.  
+
+---
+
+### 👩‍👧 Client Recommendations  
+
+- Select **breathable natural fabrics** with colourfast, child-safe dyes to ensure vibrancy and comfort through frequent washing.  
+- **Bonpoint**, **Bonton**, and **Mini Rodini** offer artistic prints with sustainable production.  
+- **Scotch & Soda**, **Jellycat x M&S collaborations**, and **MarMar Copenhagen** blend European creativity with practical silhouettes.  
+- At accessible levels, **Next**, **Frugi**, and **JoJo Maman Bébé** provide cheerful designs that mix well with solids.  
+- Maintain **one to two key statement dresses** per season for variety — ideal for casual birthdays, family photos, or outings.  
+- Avoid over-layering with prints; instead, **pair bold motifs with neutral basics** to create harmony and versatility.
+
+---

@@ -5,7 +5,7 @@
 **By N. Cotterill**  
 
 *An exploration of refined fashion across formality, purpose, and timeless style.*  
-
+f
 — ✦ — ✦ — ✦ —  
 
 ### *“Style is the map of who we are — stitched with choice, framed by grace.”*
@@ -210,6 +210,7 @@ The foundation of dress is not the garments themselves, but the understanding of
 
 As we move into the next chapters, each category builds upon these principles, translating the language of style into material form.
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## **Transition: To Outerwear**
@@ -689,6 +690,7 @@ Beyond mere protection from the elements, these garments signify presence: the q
 
 **Investment Piece** — A high-quality garment intended to last across years, transcending trends in both form and fabrication.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —  
 
 ### ✧ Transition ✧
@@ -1147,6 +1149,7 @@ Casual outerwear sits at the heart of modern living — versatile, elegant, and 
 
 **Trench Coat:** A double-breasted belted coat, often rain-resistant.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition to Next Chapter
@@ -1601,6 +1604,7 @@ Formal knitwear embodies refined warmth — an elegant equilibrium of comfort an
 
 **Rib Knit:** A stretchable knit fabric that provides structure and flexibility.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition to Next Chapter
@@ -2161,6 +2165,7 @@ A well-chosen jacket or coat not only shelters from the elements but becomes an 
 
 **Storm Flap** – A fabric panel covering zips or buttons to prevent rain penetration — a practical hallmark of quality outerwear.
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -2737,6 +2742,7 @@ Formal knitwear stands as the link between structure and comfort — a dialogue 
 
 **Pilling:** Small fibre balls that form through wear — a natural sign of softness in premium knits.
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -3317,6 +3323,7 @@ Casual knitwear represents the soul of quiet elegance — warmth and personality
 
 **Crew Neck** – A round neckline, versatile and suitable for layering.
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition to Formal Shirts & Blouses 👔
@@ -3897,6 +3904,7 @@ Formal shirts and blouses form the language of polish. They balance power with r
 
 **Organza** – Sheer, structured silk fabric used in high-formality design.
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition to Casual Shirts & Blouses 👕
@@ -4477,6 +4485,7 @@ Casual shirts and blouses embody the relaxed confidence of modern life — chic 
 
 **Linen** – Natural fibre known for breathability and relaxed texture.
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition to Formal Knit Dresses & Jerseywear 🧶
@@ -5057,6 +5066,7 @@ Formal knit dresses and jerseywear redefine professional elegance — supple yet
 
 **Cashmere Blend** – Luxurious mix providing warmth and lightness.
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition to Casual Knit Dresses & Jerseywear 🧵
@@ -5637,6 +5647,7 @@ Casual knitwear bridges softness and sophistication — crafted for real life, w
 
 **EcoVero** – Sustainable viscose fibre with reduced impact.
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition to Formal Tailoring 🕴️
@@ -6217,6 +6228,7 @@ Formal tailoring captures the artistry of structure. From the accessible practic
 
 **Canvassing:** A structural layer within a jacket ensures shape retention.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition
@@ -6795,6 +6807,7 @@ Casual tailoring reflects independence — the freedom to move, adapt, and expre
 
 **Double-Breasted** – Tailoring with two parallel rows of buttons; adds sharpness.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -7951,6 +7964,7 @@ Casual eveningwear embodies a softer kind of sophistication — elegant without 
 
 **Bias Cut:** A diagonal cut enhancing fluidity and fit.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -8529,6 +8543,7 @@ Formal trousers are more than structured fabric — they are the architecture of
 
 **Pleat Front:** Design detail allowing extra fabric for comfort and flexibility.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition
@@ -9109,6 +9124,7 @@ Casual trousers occupy the heart of modern dressing — bridging the freedom of 
 
 **Corduroy** – A ridged cotton fabric adding texture and warmth to casual looks.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition
@@ -9689,6 +9705,7 @@ Formal skirts stand as a testament to timeless elegance — garments that define
 
 **Pleats** – Folds of fabric that create structure and movement.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition
@@ -10269,6 +10286,7 @@ Casual skirts celebrate freedom and individuality. They are as at home in the co
 
 **Pleated Skirt** – Adds texture and movement to a casual ensemble.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition
@@ -10633,6 +10651,7 @@ Formal accessories may be small in scale, yet they hold the power to complete th
 
 **Tweed** — A rough, woollen fabric known for its durability and British heritage style.
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition
@@ -11219,6 +11238,7 @@ Casual accessories act as the final flourish of ease and identity. They balance 
 
 **Felt Hat:** A structured wool hat that combines classic style and casual versatility.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -11805,6 +11825,7 @@ Formal jewellery represents heritage in motion — the brilliance that accompani
 
 **Filigree:** Ornamental metalwork often used in fine jewellery.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -12391,6 +12412,7 @@ Casual jewellery reflects personal truth — understated, intimate, and quietly 
 
 **Layering:** Wearing multiple pieces for texture and depth.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -12979,6 +13001,7 @@ Formal hair accessories embody the harmony between art and attire — each piece
 
 **Hand-beaded:** Intricate decoration sewn by hand.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -13567,6 +13590,7 @@ Casual hair accessories embody the soft artistry of daily elegance. Whether silk
 
 **Satin:** Glossy fabric often used in headbands and ribbons.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -14155,6 +14179,7 @@ Formal handbags hold the essence of a moment — the clasp before entering a roo
 
 **Box Bag:** Structured, hard-sided handbag.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -14721,6 +14746,7 @@ Formal footwear defines posture, confidence, and character. It transforms not ju
 
 **Sandal:** An open shoe style ideal for evening occasions or warm climates.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -15251,6 +15277,7 @@ Casual footwear and heels bring a polished ease to everyday life — merging pra
 
 **Wedge** — Heel that extends the full length of the sole for balance and ease.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -15711,6 +15738,7 @@ Formal athleisure epitomises the evolution of activewear — an equilibrium betw
 
 **Athflow** – The fusion of athletic and flowy tailoring for modern versatility.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -16171,6 +16199,7 @@ Casual athleisure transcends performance to become a lifestyle — a sanctuary o
 
 **Hybrid Styling** – Combining elements of sport, travel, and daywear into single versatile outfits.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition to Formal Lingerie 💎
@@ -16761,6 +16790,7 @@ Every stitch, fabric, and finish speaks of quiet strength and self-assured grace
 
 **Bias Cut** – A fabric cut at an angle to create fluid drape and fit.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -17341,6 +17371,7 @@ Casual lingerie represents authenticity and intimacy — clothing that supports,
 
 **Support Band:** The elastic underband that anchors the bra for stability.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -17919,6 +17950,7 @@ Intimate lingerie represents the purest form of personal style — the pieces un
 
 **French Knicker:** Loose-fitting short lingerie piece often made of silk.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -18497,6 +18529,7 @@ Formal sleepwear and lounge reflect the philosophy that rest can be an act of re
 
 **Camisole:** A delicate sleeveless top, often made from silk or lace.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -19079,6 +19112,7 @@ Casual sleepwear, in its finest iterations, is not merely for rest but renewal �
 
 **Cashmere Blend:** Wool and cashmere mix offering warmth and softness.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -19659,6 +19693,7 @@ The formal resort wardrobe is more than attire — it’s an invitation to elega
 
 **Maxi Dress** — A floor- or ankle-length dress designed for ease and elegance.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -20239,6 +20274,7 @@ The casual resort wardrobe bridges refinement and ease — a vision of freedom a
 
 **Kaftan** — Loose, breathable garment worn casually or as an elegant cover-up.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -20819,6 +20855,7 @@ The formal swimwear collection celebrates an elegant relationship with leisure �
 
 **Sarong** — A wrap skirt tied at the waist, balancing elegance and comfort.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -21401,6 +21438,7 @@ Casual resortwear celebrates ease, sophistication, and timeless femininity. With
 
 **Linen Blend:** A fabric combining linen with cotton or silk for enhanced softness.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition
@@ -21959,6 +21997,7 @@ Accessories distil the mood of a holiday into a few thoughtful pieces. A well-ch
 
 **House Cruise Collection:** Seasonal resort/cruise lines by major fashion houses, often debuting travel-appropriate accessories.
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ### Transition
@@ -22443,6 +22482,7 @@ Resort and summer footwear define the finishing touch of elegant leisure. These 
 
 **Raffia:** A natural fibre often used in resort footwear for texture and breathability.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —  
 
 ### Transition
@@ -23013,6 +23053,7 @@ Formal ski wear embodies the ultimate intersection of adventure and refinement. 
 
 **Technical Fabric** – Engineered materials for performance, weather resistance, and comfort.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —  
 
 ## Transition
@@ -23583,6 +23624,7 @@ Casual ski wear is where alpine luxury meets comfort. Whether lounging by a chal
 
 **Hybrid Layer** – A garment combining technical and leisure fabrics.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —  
 
 ## Transition
@@ -24153,6 +24195,7 @@ Formal maternity wear reflects not only changing silhouettes but changing perspe
 
 **Bespoke Fit** – Tailoring adjusted specifically to an individual’s form.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —  
 
 ## Transition
@@ -24613,6 +24656,7 @@ Casual maternity wear champions the fusion of comfort and beauty — embracing r
 
 **Bamboo Viscose:** A soft, sustainable fabric known for breathability and moisture control.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## Transition
@@ -24797,6 +24841,7 @@ The *Wardrobe Atlas* remains a compass for those evolutions: a reminder that lux
 
 *To dress well is to live intentionally. To understand one’s wardrobe is to understand oneself.*  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
 
 ## **Credits & Acknowledgements**
@@ -24815,7 +24860,6 @@ Each brand, reference, and design philosophy within reflects a shared pursuit of
 
 — ✦ — ✦ — ✦ —
 
-<div align="center">
 
 # ✦ — *Finis* — ✦
 
@@ -24837,7 +24881,6 @@ Each brand, reference, and design philosophy within reflects a shared pursuit of
 
 *Compiled with care and discernment — where every garment tells a story.*  
 
-</div>
 
 — ✦ — ✦ — ✦ —
 
@@ -25135,7 +25178,8 @@ Each brand, reference, and design philosophy within reflects a shared pursuit of
 
 ---
 
-— ✦ — ✦ — ✦ —
+
+[Return to Table of Contents](#table-of-contents)
 
 — ✦ — ✦ — ✦ —
 
@@ -25327,4 +25371,5 @@ A wardrobe, when thoughtfully composed, becomes an autobiography in fabric — a
 
 With discipline, discernment, and care, the collection curated within *Shannon’s Wardrobe Atlas* will serve not only as a record of taste, but as an enduring archive of identity.  
 
+[Return to Table of Contents](#table-of-contents)
 — ✦ — ✦ — ✦ —
