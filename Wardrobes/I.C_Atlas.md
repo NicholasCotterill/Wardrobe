@@ -23,19 +23,19 @@
 
 ### IV. Trousers, Shorts & Bottoms
 
-[Everyday Trousers & Leggings](#-everyday--trousers--leggings)  
-[Active & Playwear Bottoms](#-active--playwear-bottoms)  
-[Seasonal & Play Shorts](#-seasonal--play-shorts)  
-[Swim & Holiday Shorts](#-swim--holiday-shorts)
-[Swimwear Safety & Care Addendum](#-swimwear-safety--care-addendum)
-[Smart & Occasion Bottoms](#-smart--occasion-bottoms)  
-[Patterned & Statement Bottoms](#-patterned--statement-bottoms)  
-[Utility, Cargo & Practical Bottoms](#-utility-cargo--practical-bottoms)  
-[The Denim Edit](#-the-denim-edit)
-[Soft Denim & Jeggings](#1-soft-denim--jeggings)
-[Denim Dresses, Dungarees & Pinafores](#2-denim-dresses-dungarees--pinafores)
-[Classic & Contemporary Denim Jeans](#3-classic--contemporary-denim-jeans)
-[Transitional & Layering Bottoms](#-transitional--layering-bottoms)
+-[Everyday Trousers & Leggings](#-everyday--trousers--leggings)  
+-[Active & Playwear Bottoms](#-active--playwear-bottoms)  
+-[Seasonal & Play Shorts](#-seasonal--play-shorts)  
+-[Swim & Holiday Shorts](#-swim--holiday-shorts)
+--[Swimwear Safety & Care Addendum](#-swimwear-safety--care-addendum)
+-[Smart & Occasion Bottoms](#-smart--occasion-bottoms)  
+-[Patterned & Statement Bottoms](#-patterned--statement-bottoms)  
+-[Utility, Cargo & Practical Bottoms](#-utility-cargo--practical-bottoms)  
+-[The Denim Edit](#-the-denim-edit)
+--[Soft Denim & Jeggings](#1-soft-denim--jeggings)
+--[Denim Dresses, Dungarees & Pinafores](#2-denim-dresses-dungarees--pinafores)
+--[Classic & Contemporary Denim Jeans](#3-classic--contemporary-denim-jeans)
+-[Transitional & Layering Bottoms](#-transitional--layering-bottoms)
 
 
 ### IV. Trousers, Shorts & Bottoms
