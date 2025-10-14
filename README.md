@@ -10,8 +10,13 @@ A central index for client wardrobe atlases — curated collections of looks, st
 |:--|:--|:--|
 | S.C | [View Atlas](Wardrobes/S.C_Atlas.md) | Atlas of Brands Specifically for S.C. |
 | I.C | [View Atlas](Wardrobes/I.C_Atlas.md) | Atlas of Brands Specifically for I.C. |
-| **Client C** | [View Atlas](atlases/client-c.md) | Elevated casual — smart layering and premium basics. |
-| **Client D** | [View Atlas](atlases/client-d.md) | Red carpet and event wear — tailored and elegant pieces. |
+| N.C | [View Atlas](Wardrobes/N.C_Atlas.md) | Atlas of Brands Specifically for N.C. |
+| J.C | [View Atlas](Wardrobes/J.C_Atlas.md) | Atlas of Brands Specifically for J.C. |
+
+---
+
+| Books | Link | Description |
+| The Practical Companion  | [View Practical Companion](Wardrobes/The Practical Companion.md) | The Practical Companion |
 
 ---
 
