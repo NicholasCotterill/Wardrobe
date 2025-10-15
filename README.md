@@ -17,6 +17,7 @@ A central index for client wardrobe atlases — curated collections of looks, st
 
 | Books | Link | Description |
 | The Practical Companion  | [View Practical Companion](Wardrobes/The Practical Companion.md) | The Practical Companion |
+| The Philosophy of Care  | [View Practical Companion](Wardrobes/The Philosophy of Care.md) | A Compendium on the Art of Garment Stewardship |
 
 ---
 

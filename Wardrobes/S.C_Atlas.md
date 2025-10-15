@@ -4,8 +4,8 @@
 
 **By N. Cotterill**  
 
-*An exploration of refined fashion across formality, purpose, and timeless style.*  
-f
+*An exploration of refined fashion across formality, purpose, and timeless style.* 
+
 — ✦ — ✦ — ✦ —  
 
 ### *“Style is the map of who we are — stitched with choice, framed by grace.”*
